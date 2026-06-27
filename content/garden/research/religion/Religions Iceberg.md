@@ -1,0 +1,464 @@
+---
+title: "Religions Iceberg"
+---
+
+# 1 Religions Iceberg
+- [Catholicism](https://en.wikipedia.org/wiki/Catholicism)
+- [Hinduism](https://en.wikipedia.org/wiki/Hinduism)
+- [Sunni Islam](https://en.wikipedia.org/wiki/Sunni%20Islam)
+- [Shia Islam](https://en.wikipedia.org/wiki/Shia%20Islam)
+- [Evangelicals](https://en.wikipedia.org/wiki/Evangelicals)
+- [Confucianism](https://en.wikipedia.org/wiki/Confucianism)
+- [Secularism](https://en.wikipedia.org/wiki/Secularism)
+- [SE Asian Buddhism](https://en.wikipedia.org/wiki/SE%20Asian%20Buddhism)
+- [Reform Judaism](https://en.wikipedia.org/wiki/Reform%20Judaism)
+- [Shinto](https://en.wikipedia.org/wiki/Shinto)
+- [Lutherianism](https://en.wikipedia.org/wiki/Lutherianism)
+- [Chinese Buddhism](https://en.wikipedia.org/wiki/Chinese%20Buddhism)
+- [Generic New Age](https://en.wikipedia.org/wiki/Generic%20New%20Age)
+- [Orthodox Christianity](https://en.wikipedia.org/wiki/Orthodox%20Christianity)
+- [Pentecostals](https://en.wikipedia.org/wiki/Pentecostals)
+- [Mainstream LDS](https://en.wikipedia.org/wiki/Mainstream%20LDS)
+- [Mormonism](https://en.wikipedia.org/wiki/Mormonism)
+- [Jainism](https://en.wikipedia.org/wiki/Jainism)
+- [Taoism](https://en.wikipedia.org/wiki/Taoism)
+- [Chinese Folk Religion](https://en.wikipedia.org/wiki/Chinese%20Folk%20Religion)
+- [Sikhism](https://en.wikipedia.org/wiki/Sikhism)
+- [Zen Buddhsim](https://en.wikipedia.org/wiki/Zen%20Buddhsim)
+- [Baha'i](https://en.wikipedia.org/wiki/Baha'i)
+- [Druze](https://en.wikipedia.org/wiki/Druze)
+- [Shaivite Hinduism](https://en.wikipedia.org/wiki/Shaivite%20Hinduism)
+- [Sufism](https://en.wikipedia.org/wiki/Sufism)
+- [Hasidic Judaism](https://en.wikipedia.org/wiki/Hasidic%20Judaism)
+- [Calvinists](https://en.wikipedia.org/wiki/Calvinists)
+- [Zoroastrianism](https://en.wikipedia.org/wiki/Zoroastrianism)
+- [Jehovah's Witnesses](https://en.wikipedia.org/wiki/Jehovah's%20Witnesses)
+- [African American Church](https://en.wikipedia.org/wiki/African%20American%20Church)
+- [Wicca](https://en.wikipedia.org/wiki/Wicca)
+- [Rastafarianism](https://en.wikipedia.org/wiki/Rastafarianism)
+- [Unitarian Universalists](https://en.wikipedia.org/wiki/Unitarian%20Universalists)
+- [Flying Spaghetti Monster](https://en.wikipedia.org/wiki/Flying%20Spaghetti%20Monster)
+- [Scientology](https://en.wikipedia.org/wiki/Scientology)
+- [Nation of Islam](https://en.wikipedia.org/wiki/Nation%20of%20Islam)
+- [Christian Science](https://en.wikipedia.org/wiki/Christian%20Science)
+- [LeVayian Satanism](https://en.wikipedia.org/wiki/LeVayian%20Satanism)
+- [Amish (Old Order)](https://en.wikipedia.org/wiki/Amish%20\(Old%20Order\))
+- [Fulan Gong](https://en.wikipedia.org/wiki/Fulan%20Gong)
+- [Hoodoo](https://en.wikipedia.org/wiki/Hoodoo)
+- [Messianic Jews](https://en.wikipedia.org/wiki/Messianic%20Jews)
+- [ISKCON](https://en.wikipedia.org/wiki/ISKCON)
+- [Gnosticism](https://en.wikipedia.org/wiki/Gnosticism)
+- [Opus Dei](https://en.wikipedia.org/wiki/Opus%20Dei)
+- [Kaballah](https://en.wikipedia.org/wiki/Kaballah)
+- [Neo-Shamanism](https://en.wikipedia.org/wiki/Neo-Shamanism)
+- [Srauta Hinduism](https://en.wikipedia.org/wiki/Srauta%20Hinduism)
+- [Hardline QAnon](https://en.wikipedia.org/wiki/Hardline%20QAnon)
+- [Five Percent Nation](https://en.wikipedia.org/wiki/Five%20Percent%20Nation)
+- [Muslim Brotherhood](https://en.wikipedia.org/wiki/Muslim%20Brotherhood)
+- [Peyote Religion](https://en.wikipedia.org/wiki/Peyote%20Religion)
+- [Cargo Cults](https://en.wikipedia.org/wiki/Cargo%20Cults)
+- [Church of SubGenius](https://en.wikipedia.org/wiki/Church%20of%20SubGenius)
+- [Chaos Magic](https://en.wikipedia.org/wiki/Chaos%20Magic)
+- [Society for Ethical Culture](https://en.wikipedia.org/wiki/Society%20for%20Ethical%20Culture)
+- [Mandeaism](https://en.wikipedia.org/wiki/Mandeaism)
+- [Romuva](https://en.wikipedia.org/wiki/Romuva)
+- [Chinese Underground Church](https://en.wikipedia.org/wiki/Chinese%20Underground%20Church)
+- [Igbo Jews](https://en.wikipedia.org/wiki/Igbo%20Jews)
+- [Christian Identity](https://en.wikipedia.org/wiki/Christian%20Identity)
+- [Raelism](https://en.wikipedia.org/wiki/Raelism)
+- [Wahhabism](https://en.wikipedia.org/wiki/Wahhabism)
+- [Aum Shinriyko/Aleph](https://en.wikipedia.org/wiki/Aum%20Shinriyko/Aleph)
+- [Santa Muerte](https://en.wikipedia.org/wiki/Santa%20Muerte)
+- [Laer Rain](https://en.wikipedia.org/wiki/Laer%20Rain)
+- [Shugendo](https://en.wikipedia.org/wiki/Shugendo)
+- [Dalit Buddhism](https://en.wikipedia.org/wiki/Dalit%20Buddhism)
+- [Sedevacantists](https://en.wikipedia.org/wiki/Sedevacantists)
+- [Nuwabiansism](https://en.wikipedia.org/wiki/Nuwabiansism)
+- [Cult Of The Angels](https://en.wikipedia.org/wiki/Cult%20Of%20The%20Angels)
+- [Moorish Science emple](https://en.wikipedia.org/wiki/Moorish%20Science%20emple)
+- [Fundamentalist Polygamous Desert Compound Mormons](https://en.wikipedia.org/wiki/Fundamentalist%20Polygamous%20Desert%20Compound%20Mormons)
+- [Ringing Cedars](https://en.wikipedia.org/wiki/Ringing%20Cedars)
+- [Anastasianism](https://en.wikipedia.org/wiki/Anastasianism)
+- [Ravidas Panth](https://en.wikipedia.org/wiki/Ravidas%20Panth)
+- [Moonies](https://en.wikipedia.org/wiki/Moonies)
+- [Appalachian Snake](https://en.wikipedia.org/wiki/Appalachian%20Snake)
+- [Michael Teachings](https://en.wikipedia.org/wiki/Michael%20Teachings)
+- [Churches](https://en.wikipedia.org/wiki/Churches)
+- [Anti-Israel Zionists](https://en.wikipedia.org/wiki/Anti-Israel%20Zionists)
+- [Greek Orthodox Old Calendarists](https://en.wikipedia.org/wiki/Greek%20Orthodox%20Old%20Calendarists)
+- [MHFM](https://en.wikipedia.org/wiki/MHFM)
+- [Ghost Dance](https://en.wikipedia.org/wiki/Ghost%20Dance)
+- [Branch Davidians](https://en.wikipedia.org/wiki/Branch%20Davidians)
+- [Independent Scientology](https://en.wikipedia.org/wiki/Independent%20Scientology)
+- [Rajneesh](https://en.wikipedia.org/wiki/Rajneesh)
+- [The Source Family](https://en.wikipedia.org/wiki/The%20Source%20Family)
+- [Freedomites](https://en.wikipedia.org/wiki/Freedomites)
+- [Reactive Satanism](https://en.wikipedia.org/wiki/Reactive%20Satanism)
+- [One Law Hebrew Roots](https://en.wikipedia.org/wiki/One%20Law%20Hebrew%20Roots)
+- Dudeism
+- [Bergholz Barbers](https://en.wikipedia.org/wiki/Bergholz%20Barbers)
+- [Children of God](https://en.wikipedia.org/wiki/Children%20of%20God)
+- [People's Temple](https://en.wikipedia.org/wiki/People's%20Temple)
+- [Nicaean Heresies](https://en.wikipedia.org/wiki/Nicaean%20Heresies)
+- [Siberian Old Believers](https://en.wikipedia.org/wiki/Siberian%20Old%20Believers)
+- [NIXVM](https://en.wikipedia.org/wiki/NIXVM)
+- [Soldiers of Heaven](https://en.wikipedia.org/wiki/Soldiers%20of%20Heaven)
+- [Lucian Pulvermacher](https://en.wikipedia.org/wiki/Lucian%20Pulvermacher)
+- [Eastern Lightning](https://en.wikipedia.org/wiki/Eastern%20Lightning)
+- [Juhayman al-Otaybi](https://en.wikipedia.org/wiki/Juhayman%20al-Otaybi)
+- [Epstein Rituals](https://en.wikipedia.org/wiki/Epstein%20Rituals)
+- [Manson Family](https://en.wikipedia.org/wiki/Manson%20Family)
+- [LeBaron Family](https://en.wikipedia.org/wiki/LeBaron%20Family)
+- [Lev Tahor](https://en.wikipedia.org/wiki/Lev%20Tahor)
+- [NOI White Ally Scientology](https://en.wikipedia.org/wiki/NOI%20White%20Ally%20Scientology)
+- [Workers Institute for Marxism-Leninism-Mao Zedong Thought (JACKIE)](https://en.wikipedia.org/wiki/Workers%20Institute%20for%20Marxism-Leninism-Mao%20Zedong%20Thought%20\(JACKIE\))
+- [Ant Hill Kids](https://en.wikipedia.org/wiki/Ant%20Hill%20Kids)
+- [Marcus Wesson](https://en.wikipedia.org/wiki/Marcus%20Wesson)
+- [Surviving Heavens Gate Members](https://en.wikipedia.org/wiki/Surviving%20Heavens%20Gate%20Members)
+- [Unknown Bunkers](https://en.wikipedia.org/wiki/Unknown%20Bunkers)
+- [Actual Illuminati](https://en.wikipedia.org/wiki/Actual%20Illuminati)
+# 2 Mysterious or Obscure Biblical Figure Iceberg
+- [Mary Magdalene](https://www.britannica.com/biography/Saint-Mary-Magdalene)
+- [Luke](https://www.britannica.com/biography/Saint-Luke)
+- [Baal-zebub](https://www.britannica.com/topic/Beelzebub)
+- [Queen of Sheba](https://www.britannica.com/biography/Queen-of-Sheba)
+- [Nicodemus](https://www.britannica.com/biography/Nicodemus)
+- [The Magi](https://www.britannica.com/topic/Magi)
+- [Enoch](https://en.wikipedia.org/wiki/Enoch)
+- [Simon Magus](https://www.britannica.com/biography/Simon-Magus)
+- [Ehud](https://www.britannica.com/biography/Ehud)
+- [Leviathan](https://www.britannica.com/topic/Leviathan-Middle-Eastern-mythology)
+- [Methuselah](https://www.britannica.com/biography/Methuselah)
+- [Bathsheba](https://www.britannica.com/biography/Bathsheba-biblical-figure)
+- [Behemoth](https://www.britannica.com/topic/Behemoth)
+- [Judas Iscariot](https://www.britannica.com/biography/Judas-Iscariot)
+- [Hannah](https://www.britannica.com/biography/Hannah-Old-Testament-figure)
+- [Melchizedek](https://www.britannica.com/biography/Melchizedek)
+- [Lilith](https://www.britannica.com/topic/Lilith-Jewish-folklore)
+- ["Unicorns"](https://en.wikipedia.org/wiki/Re%27em)
+- [Lazarus of Bethany](https://www.britannica.com/biography/Lazarus-biblical-figure)
+- [Nimrod](https://www.britannica.com/biography/Nimrod)
+- [Haman](https://www.britannica.com/topic/Haman-biblical-figure)
+- [Dinah](https://www.britannica.com/biography/Dinah-biblical-figure)
+- [Balaam](https://www.britannica.com/biography/Balaam)
+- [Nephilim](https://www.britannica.com/topic/Nephilim)
+- [Apollos](https://en.wikipedia.org/wiki/Apollos)
+- [Ethiopian eunuch](https://en.wikipedia.org/wiki/Ethiopian_eunuch)
+- [Lot's wife](https://www.britannica.com/topic/Lots-wife)
+- [Jairus' daughter](https://en.wikipedia.org/wiki/Raising_of_Jairus%27_daughter)
+- [Witch of Endor](https://www.britannica.com/biography/Witch-of-Endor)
+- [Judas-not-Iscariot](https://www.britannica.com/biography/Saint-Jude-Apostle)
+- [Naaman](https://en.wikipedia.org/wiki/Naaman)
+- [Potiphar's wife](https://en.wikipedia.org/wiki/Potiphar%27s_wife)
+- [Eliab and Shammah](https://en.wikipedia.org/wiki/Category:Family_of_David)
+- [Deborah and Jael](https://www.britannica.com/biography/Deborah-biblical-figure)
+- [Onan](https://en.wikipedia.org/wiki/Onan)
+- [Jephthah](https://www.britannica.com/biography/Jephthah)
+- [Joanna and Chuza](https://en.wikipedia.org/wiki/Joanna,_wife_of_Chuza)
+- [Herodias' daughter](https://www.britannica.com/biography/Salome-stepdaughter-of-Herod-Antipas)
+- [Mephibosheth](https://en.wikipedia.org/wiki/Mephibosheth)
+- [Lamech of Cain](https://en.wikipedia.org/wiki/Lamech_\(descendant_of_Cain\))
+- [Elihu](https://www.britannica.com/biography/Elihu)
+- [Felix and Drusilla](https://en.wikipedia.org/wiki/Antonius_Felix)
+- [Athaliah](https://www.britannica.com/biography/Athaliah)
+- [Nahshon](https://en.wikipedia.org/wiki/Nahshon)
+- [Ananias and Sapphira](https://en.wikipedia.org/wiki/Ananias_and_Sapphira)
+- [Nadab and Abihu](https://en.wikipedia.org/wiki/Nadab_and_Abihu)
+- [Junia](https://en.wikipedia.org/wiki/Junia_\(New_Testament_person\))
+- [Naked fugitive (Mark)](https://en.wikipedia.org/wiki/Naked_fugitive)
+- [Naamah](https://en.wikipedia.org/wiki/Naamah_\(Genesis\))
+- [Elhanan ben Jair](https://en.wikipedia.org/wiki/Elhanan,_son_of_Jaare-oregim)
+- [Ahitophel](https://en.wikipedia.org/wiki/Ahitophel)
+- [Zacharias ben Barachias](https://en.wikipedia.org/wiki/Zechariah_ben_Jehoiada#Possible_allusion_by_Jesus)
+- [Molech](https://www.britannica.com/topic/Moloch-ancient-god)
+- [Agur](https://en.wikipedia.org/wiki/Agur)
+- ["Little horn" from the ten horns](https://en.wikipedia.org/wiki/Daniel_7)
+- [Mahershalalhashbaz](https://en.wikipedia.org/wiki/Maher-shalal-hash-baz)
+# 3 Extinct Religions and Sects Iceberg
+- [Cathars](https://en.wikipedia.org/wiki/Catharism "A Gnostic Christian sect which existed in Italy and France during the medieval era")
+- [Aum Shinrikyo](https://en.wikipedia.org/wiki/Aum_Shinrikyo "A Buddhist-inspired millenarian Japanese cult most infamous for various terrorist attacks including the Tokyo subway attack of 1995; some of its followers are seemingly alive and continuing the cult but its founder is dead and it's now called the \"Aleph\" movement")
+- [Heaven's Gate](https://en.wikipedia.org/wiki/Heaven%27s_Gate_\(religious_group\) "An American UFO-centric millenarian cult infamous for the mass suicide of all its members; though some survivors seemingly still exist, it appears to be functionally dead")
+- [Ancient Semitic paganism](https://en.wikipedia.org/wiki/Ancient_Semitic_religion "The varied polytheistic religions of the ancient Semitic peoples - the Canaanites, Phoenicians, Hebrews, and Babylonians; these ancient religious traditions evolved into Judaism and subsequently Christianity/Islam")
+- [Classical Greco-Roman religion](https://en.wikipedia.org/wiki/Ancient_Greek_religion "The varied religious traditions of ancient Greece and Rome")
+- Basically all of the "pagan" ancient religions go here
+- [Arianism](https://en.wikipedia.org/wiki/Arianism "An early Christian heresy which believed in the superiority of God the Father over God the Son (ie Jesus)")
+- [Gnosticism (there's a bunch of sects on their own I included as well)](https://en.wikipedia.org/wiki/Gnosticism "Term used to refer to various early Christian sects which were unified around common belief that the material world was created by a lesser, imperfect and often malevolent deity named the demiurge, not god itself, and emphasised esoteric knowledge or gnosis")
+- [Peoples Temple](https://en.wikipedia.org/wiki/Peoples_Temple "A Pentecostal-derived religious cult which combined socialist and communist elements; founded by Jim Jones, its members committed ritual suicide during a raid by the FBI on their compound in Guyana, drinking poisoned Kool-Aid")
+- [Puritanism](https://en.wikipedia.org/wiki/Puritans "English Protestant sect who considered the Anglican Church insufficiently Protestant; many of them moved to New England and thus were among the first European settlers in the modern USA")
+- [Ant Hill Kids](https://en.wikipedia.org/wiki/Roch_Th%C3%A9riault#Ant_Hill_Kids "Infamous Seventh-Day Adventist-derived cult founded by the French-Canadian Roch Thériault, relatively well known due to their abusive actions")
+- [The Manson Family](https://en.wikipedia.org/wiki/Manson_Family "Infamous American cult which attempted to start a race war in which the cult would come out on top")
+- [Greco-Roman mystery religions](https://en.wikipedia.org/wiki/Greco-Roman_mysteries "Various mystery religions of the Greek and Roman world, including Orphism, Mithraism and the cult of Cybele, which were secretive in nature and information on which were known to initiants only")
+- [Manichaeism](https://en.wikipedia.org/wiki/Manichaeism "A now-extinct world religion founded by the Persian prophet Mani, who be the successor to Jesus, Buddha, and Zoroaster, and believed in a dualistic cosmology of dark and light. Today it is entirely extinct save for a few pockets in Western and Southern China.")
+- [Kharijites](https://en.wikipedia.org/wiki/Kharijites "An early radical Islamic sect which believed that any Muslims who committed sins would go to hell, and that the Caliph should be chosen from among the people; today an offshoot of it, Ibadism, is the largest sect of Islam in Oman, but save for them no such sects have survived")
+- [God Worshipping Society](https://en.wikipedia.org/wiki/God_Worshipping_Society "A Christian sect founded by the Hakka Chinese Hong Xiuquan, who claimed to be Jesus Christ's brother and rebelled against the Qing dynasty")
+- [Hussites](https://en.wikipedia.org/wiki/Hussites "A Czech proto-Protestant sect founded by Jan Hus; was strongly communalist and ascetic in nature")
+- [Sadducees](https://en.wikipedia.org/wiki/Sadducees "A Jewish faction during the Second Temple Period dominated by the aristocracy, who followed a Hellenised Judaism and rejected an Oral Torah in favour of a written one")
+- [Pharisees](https://en.wikipedia.org/wiki/Pharisees "The rivals of the Sadducees, they were dominated by the common folk and were far more orthodox than Sadducees")
+- [Qarmatianism](https://en.wikipedia.org/wiki/Qarmatians "A militant Shia Ismaili sect whose teachings are largely unknown; sometimes said to be proto-communistic")
+- [Cult of Reason and Cult of the Supreme Being](https://en.wikipedia.org/wiki/Cult_of_the_Supreme_Being "Two religions founded by the French revolutionary government (the first one atheistic, the second deist), as a replacement for the Catholic Church")
+- [Mazdakism](https://en.wikipedia.org/wiki/Mazdakism "A Manichaean-influenced offshoot of Zoroastrianism; said to be proto-communist by some")
+- [Mohism](https://en.wikipedia.org/wiki/Mohism "An ancient Chinese school of thought which emphasised altruism and caring for one another; folded into Taoism")
+- [Free Spirit](https://en.wikipedia.org/wiki/Brethren_of_the_Free_Spirit "A variety of medieval Christian heresies united by a common belief in anticlericalism, direct communication with God and disobedience of the law")
+- [Sabbateans](https://en.wikipedia.org/wiki/Sabbateans "A Jewish sect originating in modern-day Turkey, whose founded Sabbatai Zevi claimed to be the Messiah and developed numerous offshoots across Europe (all extinct)")
+- [Extremist Shiism](https://en.wikipedia.org/wiki/Ghulat "Not referring to literal Shia extremism, but rather to the Ghulat sects of early Shia Islam, which incorporated Gnostic teachings and often elevated Ali to the status of a prophet or even a god")
+- [Jewish Christianity](https://en.wikipedia.org/wiki/Jewish_Christian "Though seemingly oxymoronic, \"Jewish Christianity\" refers to the early pre-Pauline Judeo-Christian sects which venerated Jesus as the Messiah, but continued to follow the Mosaic Laws")
+- [Essenes](https://en.wikipedia.org/wiki/Essenes "An ascetic and mystical ancient Jewish sect who were likely the writers of the Dead Sea Scrolls; may have been inspired by Buddhism")
+- [Positive Christianity](https://en.wikipedia.org/wiki/Positive_Christianity "A Nazi spin on Christianity which interpreted Jesus as an \"Aryan\" and attempted to purge the Bible of \"Jewish\" influences along with incorporating Nazi ideology")
+- [Charvaka](https://en.wikipedia.org/wiki/Charvaka "An ancient Indian heterodox school of thought which denied the existence of a world other than the material one and was thus atheistic in nature")
+- [Ājīvikas](https://en.wikipedia.org/wiki/%C4%80j%C4%ABvika "Another heterodox Indian sect founded by Makkhali Gosala, who believed in complete fatalism and denied free will")
+- [Din-i Ilahi](https://en.wikipedia.org/wiki/Din-i_Ilahi "Literally \"Religion of God\", it was founded by the Mughal Emperor Akbar, who ruled over parts of modern-day India and Pakistan, and combined elements of Islam, Zoroastrianism, Christianity and Hinduism in an attempt to unify the different religions of his empire")
+- [Bogomilism](https://en.wikipedia.org/wiki/Bogomilism "The precursor to Catharism, it was a Gnostic dualist sect founded by a priest named Bogomil in the Balkans")
+- [Lollardy](https://en.wikipedia.org/wiki/Lollardy "A proto-Protestant Christian movement in England")
+- [Khlysts](https://en.wikipedia.org/wiki/Khlyst "A 17th-century charismatic and spiritualist Christian sect from Russia")
+- [The Family](https://en.wikipedia.org/wiki/The_Family_\(Australian_New_Age_group\) "A now-defunct Australian New Age cult")
+- [Zunism](https://en.wikipedia.org/wiki/Zunbils "Best known from the Crusader Kings games (which mischaracterised the religion), Zunism was a sun-worshipping religion practiced in Afghanistan before the advent of Islam")
+- [Pythagoreanism](https://en.wikipedia.org/wiki/Pythagoreanism "While Pythagoras is today known mostly for his contributions to mathematics, his philosophy had a specific religious character to it, emphasising asceticism, numerology and a belief in the immortality of the soul")
+- [Atenism](https://en.wikipedia.org/wiki/Atenism "A (probably) monotheistic religion founded by the Egyptian Pharaoh Akhenaten, which worshipped a sun god named Aten, whom Akhenaten claimed to be an incarnation of")
+- [Proto-Indo-European religion](https://en.wikipedia.org/wiki/Proto-Indo-European_mythology "The religious beliefs and practices of the Proto-Indo-Europeans, which would evolve into Norse paganism, Greco-Roman religion, and Hinduism among others")
+- [Donatism](https://en.wikipedia.org/wiki/Donatism "A North African Christian sect which believed in strict obeisance of scriptures by the priesthood")
+- [German Faith Movement](https://en.wikipedia.org/wiki/German_Faith_Movement "A now-defunct attempt to reform Germanic paganism in accordance with the Nazi ideology")
+- [Sámi religion](https://en.wikipedia.org/wiki/S%C3%A1mi_shamanism "The traditional religious practices of the Sámi peoples of Scandinavia")
+- [Greco-Buddhism (maybe)](https://en.wikipedia.org/wiki/Greco-Buddhism "Contact between Buddhists and the ancient Greeks arose during the conquests of Alexander and the Hellenistic period - whether there was a Greek influence on Buddhism beyond the arts (and vice versa) is still debated hence the \"maybe\"")
+- [Way of the Five Pecks of Rice](https://en.wikipedia.org/wiki/Way_of_the_Five_Pecks_of_Rice "A Taoist sect which ruled over a part of China from 142-215 CE, continued into the modern-day Zhengyi Dao")
+- [Strigolniki](https://en.wikipedia.org/wiki/Strigolniki "A reformist sect of Russian Orthodoxy in the 15th century, which called for a rejection of feudalism and ritualism")
+- [Vedic religion](https://en.wikipedia.org/wiki/Historical_Vedic_religion "The religion of the Vedic period of Indian history, descended from Proto-Indo-European religion and the precursor to Hinduism")
+- [Yahwism](https://en.wikipedia.org/wiki/Yahwism "The precursor to modern Judaism, which worshipped many gods, headed by Yahweh")
+- [Sabianism](https://en.wikipedia.org/wiki/Sabians "An obscure religion of the ancient Middle East, mentioned in the Quran as People of the Book and in later Jewish writings; supposedly were star-worshippers. Alternatively, the \"Sabians\" may have been Mandaeans, who are still in existence.")
+- [Bosnian Church](https://en.wikipedia.org/wiki/Bosnian_Church "The supposedly heretical church of medieval Bosnia and Herzegovina")
+- [Good News International Ministries](https://en.wikipedia.org/wiki/Good_News_International_Ministries "A Kenyan apocalyptic Christian sect that taught of an immanent apocalypse, and forced its followers to starve themselves en masse. The sect disbanded in either 2019 or 2023.")
+- [Thomasine Christianity](https://en.wikipedia.org/wiki/Thomasines "Not to be confused with the existing St. Thomas Christians of India, the Thomasines were rather a Gnostic sect who revered light and the Apostle Thomas")
+- [House of Israel (Guyana)](https://en.wikipedia.org/wiki/Religion_in_Guyana#House_of_Israel "An originally American Black Hebrew Israelite group, which would relocate to Guyana and would serve as an unofficial pro-government paramilitary and whose leaders were eventually imprisoned")
+- [Mu'tazilism](https://en.wikipedia.org/wiki/Mu%27tazilism "A medieval Islamic school of thought that attempted to infuse rationalism with Islamic teachings")
+- [Borborites](https://en.wikipedia.org/wiki/Borborites "An infamous early Gnostic sect who were alleged to take part in various grotesque, very much NSFW rituals")
+- [God-Building](https://en.wikipedia.org/wiki/God-Building "A 20th-century current within the Bolshevik party, which wished to turn communist beliefs into a quasi-religious faith not unlike the Cult of Reason")
+- [Simonianism](https://en.wikipedia.org/wiki/Simonians "A syncretic Gnostic sect founded by the rival of Jesus, Simon Magus, which venerated Simon and a female disciple of his as Zeus and Athena")
+- [Barghawata religion](https://en.wikipedia.org/wiki/Barghawata "A North African syncretisation of Islam, Judaism, astrology and traditional Amazigh beliefs")
+- [Collyridianism](https://en.wikipedia.org/wiki/Collyridianism "An Arabian Christian heresy of the 3rd century which allegedly worshipped the Virgin Mary as a goddess")
+- [Millerism](https://en.wikipedia.org/wiki/Millerism "Founded by William Miller in the 19th century USA, it claimed that the resurrection of Jesus would occur in the years 1843-1844; it grew extremely popular, but vanished after this obviously didn't occur")
+- [Extinct early Buddhist schools](https://en.wikipedia.org/wiki/Early_Buddhist_schools#The_eighteen_schools "Various Buddhist schools of thought, including Pudgalavāda, Vibhajyavāda, and others; now extinct")
+- [Order of the Solar Temple](https://en.wikipedia.org/wiki/Order_of_the_Solar_Temple "A secretive French cult which attempted to revive the medieval Templar order - infamous for its connection to 77 mass suicides in various parts of Europe")
+- [Adonai-Shomo](https://en.wikipedia.org/wiki/Adonai-Shomo "A millenarian Quaker sect based in a commune in Massachussets")
+- [Community of The Son of Man](https://en.wikipedia.org/wiki/Agapemonites "A radical mysticist Anglican sect in the 19th-century UK")
+- [Hemerobaptists](https://en.wikipedia.org/wiki/Hemerobaptists "An ancient Jewish sect that practiced ritual baptism; possibly associated with John the Baptist")
+- [Zurvanism](https://en.wikipedia.org/wiki/Zurvanism "A fatalistic sect of Zoroastrianism of unknown origin")
+- [Adamitism](https://en.wikipedia.org/wiki/Adamites "A North African early Christian heresy which believed in going nude")
+- [True Church of Jesus Christ (Cutlerite)](https://en.wikipedia.org/wiki/True_Church_of_Jesus_Christ_\(Cutlerite\) "A defunct Mormon splinter of another splinter sect, the Cutlerites")
+- [Khurramites](https://en.wikipedia.org/wiki/Khurramites "A Mazdakist-inspired syncretisation of Shi'ism and Zoroastrianism")
+- [Athinganoi](https://en.wikipedia.org/wiki/Athinganoi "A Judaising, seemingly Manichaean sect of possible Indian origin, vaguely connected to the Roma people of today")
+- [Psychiana](https://en.wikipedia.org/wiki/Psychiana "Basically just a 1920s self-help guru \"religion\"")
+- [Hypsistarianism](https://en.wikipedia.org/wiki/Hypsistarians "A Jewish-pagan syncretism which worshipped one god, Zeus Hypsistos (\"Zeus the Most High\")")
+- [Thee Temple ov Psychick Youth](https://en.wikipedia.org/wiki/Thee_Temple_ov_Psychick_Youth "A chaos magic group founded by members of the bands Throbbing Gristle, Coil and Current 93 in the 1980s")
+- [Mahabadism](https://en.wikipedia.org/wiki/Mahabad_\(prophet\) "A precursor to Zoroastrianism, named for the prophet Mahabad")
+- [Pagal Panthi](https://en.wikipedia.org/wiki/Pagal_Panthis "A monotheistic, egalitarian and animistic syncretisation of Hinduism, Sufism and tribal religions in eastern India")
+- [Yellow Sand Society](https://en.wikipedia.org/wiki/Yellow_Sand_Society "A millenarian Chinese sect whose leaders believed in an immanent apocalypse that only its members would be safe from, and called for the restoration of the Ming dynasty")
+- [The Seekers](https://en.wikipedia.org/wiki/The_Seekers_\(rapturists\) "A millenarian sect whose founders believed that the apocalypse would happen in December 1954; and that believers would be saved by aliens on UFOs - the cult largely fell apart when the prophecy failed, but some members instead chose to believe that the cult had saved the world from doomsday, therefore, the group is often cited in studies of cognitive dissonance")
+- [Brethren of Purity](https://en.wikipedia.org/wiki/Brethren_of_Purity "An esoteric, seemingly Islamic group in medieval Iraq")
+- [Guglielmites](https://en.wikipedia.org/wiki/Guglielma "An obscure, medieval sect led by Guglielma, an Italian noblewoman, the Guglielmites believed that the end times were near and would give rise to a new church led by woman, with Guglielma herself as the incarnation of the Holy Spirit.")
+- [Zaijia](https://en.wikipedia.org/wiki/Syncretism_\(Chinese_philosophy\) "An ancient Chinese school of thought which syncretised various others")
+- [Mina Sikhs](https://en.wikipedia.org/wiki/Mina_\(Sikhism\) "A heretical sect within Sikhism who believed that the successor to Guru Ram Das was his eldest son, Prithi Chand, and opposed the orthodox Sikh order")
+- [Yangism](https://en.wikipedia.org/wiki/Yangism "An ancient Chinese school of thought which emphasised acting out of self-interest")
+- [Biblists](https://en.wikipedia.org/wiki/Biblists "A 19th-century Russian Jewish sect which rejected all post-Biblical scriptures (ie the Talmud)")
+- [Adonism](https://en.wikipedia.org/wiki/Adonism "A neopagan religion founded by the German Franz Sättler, which worshipped the figures of Adonis and Dido")
+- [Rahmanism (maybe?)](https://en.wikipedia.org/wiki/Rahmanan "A possible pre-Islamic monotheistic religion of Syria and the Arabian peninsula, which worshipped one god, Raḥmānān")
+- [Vaishnava Sahajiya](https://en.wikipedia.org/wiki/Vaishnava_Sahajiya "A 16th-century Hindu mysticist sect which worshipped the god Krishna and his lover Radha, emphasising erotic love")
+- [Patripassianism](https://en.wikipedia.org/wiki/Patripassianism "A variation on Sabellian Christianity, which believed that the Trinity was made up of three emanations of one god, and therefore that God the Father suffered alongside Jesus on the cross")
+- [Abrahamites](https://en.wikipedia.org/wiki/Abrahamites "A deist movement in modern-day Czechia who claimed to be descended from the pre-circumcised Abraham")
+- [Proto-Shintō animism](https://en.wikipedia.org/wiki/Ko-Shint%C5%8D "The animistic religious practices followed in Jōmon period Japan, which predated and influenced Shintoism")
+- [Vailala Madness](https://en.wikipedia.org/wiki/Vailala_Madness# "A millenarian social movement in Papua New Guinea in the 20th century, which is thought to have been the first cargo cult")
+- [Mumboism](https://en.wikipedia.org/wiki/Mumboism "A millenarian, anti-colonialist religious movement in Kenya which preached the end of colonial rule and opposed European culture and Christianity")
+- [Chen Tao](https://en.wikipedia.org/wiki/Chen_Tao_\(UFO_religion\) "A Taiwanese UFO religion founded in the 1950s, which believed in a UFO prophecy and fell apart after the prophecy wasn't fulfilled")
+- [Antonianism](https://en.wikipedia.org/wiki/Antonianism "A syncretic Christian sect of the Kongo kingdom in modern-day Angola, founded by a noblewoman who claimed to be possessed by St. Anthony of Padua; and believed in ideas like Jesus being an African and rejecting the cross and some of the sacraments")
+- [Alamo Christian Foundation](https://en.wikipedia.org/wiki/Alamo_Christian_Foundation "An evangelical cult from the 1960s, not really much to say about them.")
+- [Sekta Niebo](https://en.wikipedia.org/wiki/Sekta_Niebo "A Polish Christian cult whose leader Bogdan Kacmajor positioned himself as the reincarnation of the Prophet Elijah, who could heal all ailments; members believed the world would end in 2000")
+- [Gewissener](https://de.wikipedia.org/wiki/Gewissener "A 17th-century atheistic German sect founded by Matthias Knutzen")
+- [Church of Aphrodite](https://en.wikipedia.org/wiki/Church_of_Aphrodite "A neopagan, monotheistic sect founded by a former Russian imperial doctor, Gleb Botkin, which worshipped a supreme goddess of love and femininity")
+- [Bagnolians](https://en.wikipedia.org/wiki/Bagnolians "A Manichaean-esque French Christian heresy, which believed in an eternal world and soul")
+- [Yapaniya](https://en.wikipedia.org/wiki/Yapaniya "A sect of Jainism founded in Karnataka, modern-day Southern India")
+- [Manav Dharma Sabha](https://en.wikipedia.org/wiki/Manav_Dharma_Sabha "A monotheist, reformist trend within Hinduism founded in modern-day Gujarat, India, which attempted to encourage rationalism and opposed inequality and superstition")
+- [Kapalika Shaivism](https://en.wikipedia.org/wiki/Kapalika "An extinct sect of Shaivism (Hindu sect which worships the god Shiva), which practiced various unorthodox rituals including human sacrifice, ritual intercourse, and smearing themselves with ashes (all of this is alleged, though)")
+- [Coconut Religion](https://en.wikipedia.org/wiki/Coconut_Religion "A Vietnamese Buddhist sect founded by Ông Đạo Dừa (\"Coconut Monk\") which believed in religious harmony and advocated for a diet of only coconuts and coconut-derived products")
+- [World Elijah Evangelical Mission](https://en.wikipedia.org/wiki/World_Elijah_Evangelical_Mission "A millenarian sect founded in China in the 1980s by a Chinese-Korean named Park Myung-Hoo; whose followers worshipped him as the \"Stone Immortal\", crushed in 1999")
+- [Movement for the Restoration of the Ten Commandments of God](https://en.wikipedia.org/wiki/Movement_for_the_Restoration_of_the_Ten_Commandments_of_God "A Ugandan Christian militant movement whose founders claimed to have witnessed the Virgin Mary and had a millenarian outlook focusing on the prophesised end times")
+- [Antrovis](https://pl.wikipedia.org/wiki/Antrovis "A Polish sect which believed Slavs were descended from aliens, and had helped put the world in order; then, \"Hebrews\" or Jewish people came from space and created free will thus leading to an eternal war between the two; the war would end by the year 2000 with the evacuation of the universe and a new order led by the Poles; apparently it stopped existing by the 1990s")
+- [Shamsīyah](https://en.wikipedia.org/wiki/Shams%C4%AByah "A sun-worshipping sect found in modern-day Turkey and Iraq, who seemed to have retained the ancient Mesopotamian religion up to the 20th century")
+- [Prehistoric religions](https://en.wikipedia.org/wiki/Prehistoric_religion "The varied religions of the paleolithic and neolithic world; or at least what we know of them")
+# 4 Catholicism
+CannonHereticalControversialHistorical
+- Pauline Rite
+- Rosary (5 Decades)
+- Our Lady of Guadalupe
+- Our Lady of Lourdes
+- "Pope-Mobile"
+- Miraculous Medal
+- Liturgy of the Hours
+- Latin High Mass
+- Shroud of Turin
+- Rosary (15 Decades)
+- St. Joseph "Terror of Demons"
+- Our Lady of Fatima
+- Papal Infallibility
+- Crusades
+- Purgatory
+- Rosary (20 decades)
+- Acta Santorum
+- Incorruptible Saints
+- Holy Prepuse
+- FSSP
+- Latin Low Mass
+- St. James "Moor-slayer"
+- Monastic Sign Language
+- Borgia Popes
+- Apocrypha
+- Angelology
+- St. Uriel
+- SSPX
+- Liberation Theology
+- Acts of Peter
+- Stigmata
+- Black Madonna of Częstochowa
+- Pope Martin IV should be Martin II
+- Borgia Saints
+- Nag Hammadi Library
+- Codex Gigas Origins
+- Dog Headed Saint
+- Sedevacantism
+- Folk Catholicism
+- St. Barlaam
+- 35 lunar craters named after Jesuits
+- Our Lady of Akita
+- Washington's Deathbed Conversion to Catholicism
+- Suppression of the Jesuits
+- Q Source
+- Omega Point
+- Santa Muerte
+- Cadaver Synod
+- Pope Peter III
+- Our Lady of Medjugorje
+- Hermits of St. Paul of France (Brothers of Death)
+- Defunct Liturgical Rites
+- Jesuit assassination attempt against Queen Elizabeth
+- Orsini Popes
+- Arsenokoites and Malakos real translation
+- St. Lucifer of Cagliari
+- Malachy's Prophesy of the Popes
+- Chinese Rites Controversy
+- Mussolini in Purgatory
+- Events in Revelations already took place
+- Gospel of Judas
+- Rebiba Bottleneck
+- Entering Heaven While Still Alive
+- Chronovisor
+- Jesuits of the Short Robe
+- St. John the Apostle and Astolfo
+- Nacho Libre (2006) is Based on Real Events
+- Our Lady of Bayside
+- Pokemon Receives Papal Blessing
+- Vatican City women's national football team
+- Nobody knows how many Popes were named "John"
+- Cat Nuns Incident
+# 5 American Protestantism
+## Christmas And Easter Only
+- Consubstatiation
+- Eucharist and Communion
+- [The Five Solas](https://en.wikipedia.org/wiki/Five_solae "Five core principles of the Protestant doctrine of salvation. .  They comprise the core doctrinal differences between the Catholic doctrine of salvation and the Protestant one.  Too complex to list and explain here, see Wikipedia link")
+- Personal Relationship with God
+- Priesthood of All Believers
+- Iconoclasm
+## Monthly Attendance
+- Programmed Worship
+- Baptism of Infants
+- Baptism by sprinkling
+- Officiation of Same Sex Marriage
+- Ordination of Women and LGBTQIA+ people
+- Abortion is/isn't Murder
+- Born Again Experience
+- Congregational Polity
+- Black Liberation Theology
+- Affirming Christianity
+- Legacy of Segregation
+- Presbytarian Polity
+- Historicity of Jesus
+## Weekly Worshipper
+- Snake Handling
+- Baptism of believers only
+- Calvinist Angel Elect
+- Arminian Salvation
+- Baptism by pouring
+- "Bleeding the Beast"
+- Dietary and Clothing Restrictions
+- Prosperity Gospel
+- Biblical Inerrancy
+- Predestination
+- Womanist Theology
+- Pentecostal Megachurches
+- Speaking in Tongues
+- Christian Theosophy
+- Christians are a persecuted minority
+## Confirmed Christian
+- Unprogrammed Worship
+- Non Trinitarianism
+- United Methodist Church is splitting
+- Baptism by immersion
+- Saturday Sabbath
+- Jesus Michael Christ
+- Quiverfull Movement
+- The Love Feast
+- Dominionism
+- Weberist work ethic
+- Premillenial Dispensationalism (Rapture Theology)
+- X Politician is the Antichrist
+- Jesus was a Black African
+## Devout Witness
+- Use of Apocryphal texts
+- Metholicism (not the amphetamine)
+- Young Earth Creationism
+- Jefferson Bible
+- KJV Onlyism
+- Keswick Movement
+- The Potluck is a Sacrament
+- 1844 Doctrine
+- Christian Zionism and Rapture Theology
+- 1914 post apocalypse
+- Biblical Literalism
+- Gog and Magog
+- Omphalos Hypothesis
+- The AR-15 is the Rod of Iron
+- Jesus was a buff Korean
+- Prayer Port Priority
+- Divine Debt Cancellation
+## 4 am Bible Study
+- Improvisational Worship
+- FEMA abortion camps
+- Metholicism (yes the amphetamine)
+- Kahr Firearms Group
+- Flat Earth Creationism
+- Pre-Conception Baptism
+- Adam and Eve were dinosaurs
+- UN NWO Antichrist
+- GEOTUS Trump
+- MITM Prayer interception
+- optimal baptismal pH
+- Desert Tech MDR
+## Supererogation (Bible Moth)
+- Israel Strategic Orbital Directed Energy Weather Manipulator
+- Amish Space Program (1878 moon landing)
+- Televangelist Truck Stops (Snake Handling ( ͡° ͜ʖ ͡°)
+- (Reel Big Fishes and Loaves) Pop Punk Eskatology
+- Post Birth Abortion
+- JoJo Christ (Steel Ball Run Canonicity)
+- Salvation Navy
+- Baptism by vape
+- Kanye West Dominionism (Jesus is King)
+- God is a Boltzmann Brain
+- Prayer DDoS attacks
+- Cancelled Bible Sequel
+## ENTIRE SANCTIFICATION
+- Coltrane Modal Worship
+- Fourth Impact Eschatology (Neon Genesis Evangelicalism)
+- Prebirth Baptism
+- Flat Chested Earth Creationism
+- Post Nut Predestination
+- Θ-dimensional infinite fractal megachurch (see case file SCP 3008)
+- Hypercube Dispensationalism
+- Baptism by Drowning (Direct to Heaven Ministries)
+- astral plane witnessing

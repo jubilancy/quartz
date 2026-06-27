@@ -1,0 +1,1242 @@
+---
+title: "political icebergs"
+---
+
+#  [Ultimate over 1000 Political Ideologies Iceberg](https://icebergcharts.com/i/Ultimate_over_1000_Political_Ideologies) 📋
+## Normie Ideas
+- [One Party Rule](https://en.wikipedia.org/wiki/One-party_state)
+- [Liberalism](https://en.wikipedia.org/wiki/Liberalism)
+- [Neo Liberalism](https://en.wikipedia.org/wiki/Neoliberalism)
+- [Environmentalism](https://en.wikipedia.org/wiki/Environmentalism)
+- [Liberal Democracy](https://en.wikipedia.org/wiki/Liberal_democracy)
+- [Progressivism](https://en.wikipedia.org/wiki/Progressivism)
+- [Globalism](https://en.wikipedia.org/wiki/Globalism)
+- [Totalitarianism](https://en.wikipedia.org/wiki/Totalitarianism)
+- [Autocracy](https://en.wikipedia.org/wiki/Autocracy)
+- [Authoritarianism](https://en.wikipedia.org/wiki/Authoritarianism)
+- [Constitutional Monarchy](https://en.wikipedia.org/wiki/Constitutional_monarchy)
+- [Third Way](https://en.wikipedia.org/wiki/Third_Way)
+- [Republicanism](https://en.wikipedia.org/wiki/Republicanism)
+- [Marxism](https://en.wikipedia.org/wiki/Marxism)
+- [Socialism](https://en.wikipedia.org/wiki/Socialism)
+- [Capitalism](https://en.wikipedia.org/wiki/Capitalism)
+- [Anarchy](https://en.wikipedia.org/wiki/Anarchy)
+- [National Socialism](https://en.wikipedia.org/wiki/Nazism)
+- [Fascism](https://en.wikipedia.org/wiki/Fascism)
+- [Aristocracy](https://en.wikipedia.org/wiki/Aristocracy)
+- [Alt Right](https://en.wikipedia.org/wiki/Alt-right)
+- [Moderatism](https://en.wikipedia.org/wiki/Political_moderate)
+- [Nationalism](https://en.wikipedia.org/wiki/Nationalism)
+- [Feudalism](https://en.wikipedia.org/wiki/Feudalism)
+- [Traditionalism](https://en.wikipedia.org/wiki/Traditionalism)
+- [Conservatism](https://en.wikipedia.org/wiki/Conservatism)
+- [Neo Conservatism](https://en.wikipedia.org/wiki/Neoconservatism)
+- [Two Party Rule](https://en.wikipedia.org/wiki/Two-party_system)
+- [Centrism](https://en.wikipedia.org/wiki/Centrism "Dead Centrism")
+## History Class Tier
+- [Stalinism](https://en.wikipedia.org/wiki/Stalinism)
+- [Maoism](https://en.wikipedia.org/wiki/Maoism)
+- [Oligarchy](https://en.wikipedia.org/wiki/Oligarchy)
+- [Multiculturalism](https://en.wikipedia.org/wiki/Multiculturalism)
+- [Social Liberalism](https://en.wikipedia.org/wiki/Social_liberalism "Modern Liberalism")
+- [Utilitarianism](https://en.wikipedia.org/wiki/Utilitarianism)
+- [Eco Liberalism](https://en.wikipedia.org/wiki/Green_liberalism)
+- [Classical Liberalism](https://en.wikipedia.org/wiki/Classical_liberalism)
+- [Anti Fascism](https://en.wikipedia.org/wiki/Anti-fascism "Western Partisanism")
+- [Anarcho Nihilism](https://theanarchistlibrary.org/library/aragorn-anarchy-and-nihilism-consequences)
+- [Marxism Leninism](https://en.wikipedia.org/wiki/Marxism%E2%80%93Leninism "Communism")
+- [Patriarchy](https://en.wikipedia.org/wiki/Patriarchy)
+- [Absolutism](https://en.wikipedia.org/wiki/Absolute_monarchy)
+- [Statism](https://en.wikipedia.org/wiki/Statism)
+- [Despotism](https://en.wikipedia.org/wiki/Despotism)
+- [Colonialism](https://en.wikipedia.org/wiki/Colonialism)
+- [Leninism](https://en.wikipedia.org/wiki/Leninism)
+- [Imperialism](https://en.wikipedia.org/wiki/Imperialism)
+- [Cronyism](https://en.wikipedia.org/wiki/Cronyism)
+- [Trotskyism](https://en.wikipedia.org/wiki/Trotskyism)
+- [Democratic Socialism](https://en.wikipedia.org/wiki/Democratic_socialism)
+- [Social Democracy](https://en.wikipedia.org/wiki/Social_democracy)
+- [Radical Centrism](https://en.wikipedia.org/wiki/Radical_centrism)
+- [Constitutional Democracy](https://link.springer.com/referenceworkentry/10.1007/978-1-4020-9160-5_42)
+- [Apoliticism](https://en.wikipedia.org/wiki/Apoliticism)
+- [Right Libertarianism](https://en.wikipedia.org/wiki/Libertarianism "\"Libertarianism\"")
+- [Anarcho Capitalism](https://en.wikipedia.org/wiki/Anarcho-capitalism)
+- [Theocracy](https://en.wikipedia.org/wiki/Theocracy)
+- [Neo Nazism](https://en.wikipedia.org/wiki/Neo-Nazism)
+- [Reactionarism](https://en.wikipedia.org/wiki/Reactionary)
+- [Race Supremacism](https://en.wikipedia.org/wiki/Supremacism)
+- [Cultural Marxism](https://www.conservapedia.com/Cultural_Marxism)
+- [Pacifism](https://en.wikipedia.org/wiki/Pacifism)
+- [Anti Authoritarianism](https://en.wikipedia.org/wiki/Anti-authoritarianism)
+- [White Supremacism](https://en.wikipedia.org/wiki/White_supremacy)
+- [Protectionism](https://en.wikipedia.org/wiki/Protectionism)
+- [Constitutionalism](https://en.wikipedia.org/wiki/Constitutionalism)
+- [Legalism](https://en.wikipedia.org/wiki/Legalism_\(Chinese_philosophy\))
+- [Rationalism](https://en.wikipedia.org/wiki/Rationalism)
+## Obscure But Not Unknown
+- [Anti Revisionism](https://en.wikipedia.org/wiki/Anti-revisionism)
+- [Xi Jinping Thought](https://en.wikipedia.org/wiki/Xi_Jinping_Thought)
+- [Dengism](https://en.wikipedia.org/wiki/Deng_Xiaoping_Theory)
+- [Neo Fascism](https://en.wikipedia.org/wiki/Neo-fascism)
+- [Revisionism](https://en.wikipedia.org/wiki/Revisionism_\(Marxism\))
+- [Jacobinism](https://en.wikipedia.org/wiki/Jacobin_\(politics\))
+- [Cultism](https://en.wikipedia.org/wiki/Cult)
+- [Impossibilism](https://en.wikipedia.org/wiki/Impossibilism)
+- [Confederalism](https://en.wikipedia.org/wiki/Confederation)
+- [Technocracy](https://en.wikipedia.org/wiki/Technocracy)
+- [Left Wing Populism](https://en.wikipedia.org/wiki/Left-wing_populism)
+- [Egalitarianism](https://en.wikipedia.org/wiki/Egalitarianism)
+- [Left Wing Social Justicism](https://en.wikipedia.org/wiki/Social_justice_warrior)
+- [Religious Rejectionism](https://en.wikipedia.org/wiki/Religious_rejection_of_politics)
+- [Transhumanism](https://en.wikipedia.org/wiki/Transhumanism)
+- [Secular Thought](https://en.wikipedia.org/wiki/Atheism)
+- [Corporatocracy](https://en.wikipedia.org/wiki/Corporatocracy)
+- [Intersectionalitism](https://en.wikipedia.org/wiki/Intersectionality)
+- [Primitivism](https://en.wikipedia.org/wiki/Primitivism)
+- [English Socialism](https://en.wikipedia.org/wiki/Political_geography_of_Nineteen_Eighty-Four#Oceania "IngSoc")
+- [Bolshevism](https://en.wikipedia.org/wiki/Bolshevism)
+- [State Capitalism](https://en.wikipedia.org/wiki/State_capitalism)
+- [Thatcherism](https://en.wikipedia.org/wiki/Thatcherism)
+- [Trumpism](https://en.wikipedia.org/wiki/Trumpism)
+- [Labourism](https://en.wikipedia.org/wiki/Labour_movement)
+- [Ho Chi Minh Thought](https://en.wikipedia.org/wiki/Ho_Chi_Minh_Thought)
+- [Zionism](https://en.wikipedia.org/wiki/Zionism)
+- [Welfarism](https://en.wikipedia.org/wiki/Welfarism)
+- [Anti Politicism](https://en.wikipedia.org/wiki/Political_alienation "Political Alienation")
+- [Direct Democracy](https://en.wikipedia.org/wiki/Direct_democracy)
+- [Collectivism](https://en.wikipedia.org/wiki/Collectivism)
+- [Syndicalism](https://en.wikipedia.org/wiki/Syndicalism)
+- [Eco Anarchy](https://en.wikipedia.org/wiki/Green_anarchism "Green Anarchy")
+- [Social Anarchy](https://en.wikipedia.org/wiki/Social_anarchism)
+- [Libertarianism](https://en.wikipedia.org/wiki/Libertarianism "Economically Centrist")
+- [Toryism](https://en.wikipedia.org/wiki/Tory)
+- [Left Reformism](https://en.wikipedia.org/wiki/Reformism)
+- [Right Reformism](https://en.wikipedia.org/wiki/Reformism)
+- [Right Wing Populism](https://en.wikipedia.org/wiki/Right_wing_populism)
+- [Anti Communism](https://en.wikipedia.org/wiki/Anti_communism)
+- [Matriarchy](https://en.wikipedia.org/wiki/Matriarchy)
+- [National Democracy](https://en.wikipedia.org/wiki/National_Democracy_\(Poland\) "has more than one definition")
+- [Horseshoe Theory](https://en.wikipedia.org/wiki/Horseshoe_theory)
+- [Political Nihilism](https://en.wikipedia.org/wiki/Nihilism#Political)
+- [Anarcho Communism](https://en.wikipedia.org/wiki/Anarcho-communism)
+- [Georgism](https://en.wikipedia.org/wiki/Georgism)
+- [Mutualism](https://en.wikipedia.org/wiki/Mutualism_\(economic_theory\))
+- [Libertarian Socialism](https://en.wikipedia.org/wiki/Libertarian_socialism)
+- [Federalism](https://en.wikipedia.org/wiki/Federalism)
+- [Luddism](https://en.wikipedia.org/wiki/Luddite)
+- [Police Statism](https://en.wikipedia.org/wiki/Police_state)
+- [Christian Democracy](https://en.wikipedia.org/wiki/Christian_democracy)
+## Twitter/Lurker Tier
+- [Anti Natalism](https://en.wikipedia.org/wiki/Antinatalism)
+- [Marxism Leninism Maoism](https://en.wikipedia.org/wiki/Marxism%E2%80%93Leninism%E2%80%93Maoism)
+- [Castroism](https://en.wikipedia.org/wiki/Politics_of_Fidel_Castro)
+- [Kemalism](https://en.wikipedia.org/wiki/Kemalism)
+- [Council Communism](https://en.wikipedia.org/wiki/Council_communism)
+- [Vichy Fascism](https://en.wikipedia.org/wiki/Vichy_France)
+- [Liberal Socialism](https://en.wikipedia.org/wiki/Liberal_socialism)
+- [Neo Imperialism](https://en.wikipedia.org/wiki/New_Imperialism "New Imperialism")
+- [Jeffersonian Democracy](https://en.wikipedia.org/wiki/Jeffersonian_democracy)
+- [Rainbow Capitalism](https://en.wikipedia.org/wiki/Rainbow_capitalism "Pink Capitalism")
+- [Democratic Confederalism](https://en.wikipedia.org/wiki/Democratic_confederalism)
+- [Bleeding Heart Libertarianism](https://en.wikipedia.org/wiki/Neoclassical_liberalism)
+- [Deep Ecologism](https://en.wikipedia.org/wiki/Deep_ecology)
+- [Piratism](https://en.wikipedia.org/wiki/Pirate_Party)
+- [Anarcho Syndicalism](https://en.wikipedia.org/wiki/Anarcho-syndicalism)
+- [Agorism](https://en.wikipedia.org/wiki/Agorism)
+- [Irredentism](https://en.wikipedia.org/wiki/Irredentism)
+- [Francoism](https://en.wikipedia.org/wiki/Francoism)
+- [Monarcho Syndicalism](https://en.wikipedia.org/wiki/German_Empire)
+- [Social Authoritarianism](https://en.wikipedia.org/wiki/Authoritarian_socialism)
+- [Titoism](https://en.wikipedia.org/wiki/Titoism)
+- [Authoritarian Capitalism](https://en.wikipedia.org/wiki/Authoritarian_capitalism)
+- [Pinochetism](https://en.wikipedia.org/wiki/Pinochetism)
+- [Chavezism](https://en.wikipedia.org/wiki/Chavismo)
+- [Guevarism](https://en.wikipedia.org/wiki/Guevarism "Focalism")
+- [Banana Republicanism](https://en.wikipedia.org/wiki/Banana_republic)
+- [Distributism](https://en.wikipedia.org/wiki/Distributism)
+- [Corporatism](https://en.wikipedia.org/wiki/Corporatism)
+- [Longism](https://en.wikipedia.org/wiki/Huey_Long)
+- [Demarchy](https://en.wikipedia.org/wiki/Sortition)
+- [Agrarianism](https://en.wikipedia.org/wiki/Agrarianism)
+- [Progressive Conservatism](https://en.wikipedia.org/wiki/Progressive_conservatism)
+- [Mercantilism](https://en.wikipedia.org/wiki/Mercantilism)
+- [Communalism](https://www.merriam-webster.com/dictionary/communalism)
+- [Market Socialism](https://en.wikipedia.org/wiki/Market_socialism)
+- [Rockefeller Republicanism](https://en.wikipedia.org/wiki/Rockefeller_Republican)
+- [Social Darwinism](https://en.wikipedia.org/wiki/Social_Darwinism)
+- [Post Modernism](https://en.wikipedia.org/wiki/Postmodernism)
+- [Nordic Model](https://en.wikipedia.org/wiki/Nordic_model)
+- [Anti Totalitarianism](https://en.wiktionary.org/wiki/antitotalitarian)
+- [Neo Luddism](https://en.wikipedia.org/wiki/Neo-Luddism)
+- [McCarthyism](https://en.wikipedia.org/wiki/McCarthyism)
+- [Minarchy](https://en.wikipedia.org/wiki/Night-watchman_state "Night Watchman State")
+- [Objectivism](https://en.wikipedia.org/wiki/Objectivism)
+- [Individualist Anarchy](https://en.wikipedia.org/wiki/Individualist_anarchism)
+- [Jucheism](https://en.wikipedia.org/wiki/Juche)
+- [Strasserism](https://en.wikipedia.org/wiki/Strasserism)
+- [Ethno Nationalism](https://en.wikipedia.org/wiki/Ethnic_nationalism)
+- [Ethnocracy](https://en.wikipedia.org/wiki/Ethnocracy)
+- [Mugabeism](https://en.wikipedia.org/wiki/Robert_Mugabe#Ideology)
+- [Paternal Conservatism](https://en.wikipedia.org/wiki/Paternalistic_conservatism)
+- [Paleo Conservatism](https://en.wikipedia.org/wiki/Paleoconservatism)
+- [National Syndicalism](https://en.wikipedia.org/wiki/National_syndicalism)
+- [Welfare Chauvinism](https://en.wikipedia.org/wiki/Welfare_chauvinism "Social Fascism")
+- [Bismarckism](https://en.wikipedia.org/wiki/Otto_von_Bismarck)
+- [Neo Ottomanism](https://en.wikipedia.org/wiki/Neo-Ottomanism)
+- [Caeserism](https://en.wikipedia.org/wiki/Caesarism)
+- [Religious Socialism](https://en.wikipedia.org/wiki/Religious_socialism)
+- [Stoicism](https://en.wikipedia.org/wiki/Stoicism)
+- [Anti Radicalism](https://en.wiktionary.org/wiki/antiradicalism)
+- [Paleo Libertarianism](https://en.wikipedia.org/wiki/Paleolibertarianism)
+- [Austrian Libertarianism](https://en.wikipedia.org/wiki/Austrian_School)
+- [Anti Imperialism](https://en.wikipedia.org/wiki/Anti-imperialism "Occasionally Anti Japanism")
+- [Hoppeanism](https://en.wikipedia.org/wiki/Hans-Hermann_Hoppe)
+- [Anarcho Primitivism](https://en.wikipedia.org/wiki/Anarcho-primitivism)
+- [Insurrectionary Anarchy](https://en.wikipedia.org/wiki/Insurrectionary_anarchism)
+- [Platonism](https://en.wikipedia.org/wiki/Platonism)
+- [Hedonism](https://en.wikipedia.org/wiki/Hedonism)
+- [Left Wing Nationalism](https://en.wikipedia.org/wiki/Left-wing_nationalism "Social Nationalism")
+- [Caste System](https://en.wikipedia.org/wiki/Caste_system_in_India)
+- [Peronism](https://en.wikipedia.org/wiki/Peronism)
+- [Individualism](https://en.wikipedia.org/wiki/Individualism)
+- [Market Anarchy](https://en.wikipedia.org/wiki/Free-market_anarchism)
+- [Esoteric Fascism](https://en.wikipedia.org/wiki/Esoteric_Nazism)
+- [Anarcha Feminism](https://en.wikipedia.org/wiki/Anarcha-feminism)
+- [Queer Anarchy](https://en.wikipedia.org/wiki/Queer_anarchism)
+- [Anti Centrism](https://www.yipinstitute.com/articles/why-you-shouldnt-be-a-centrist)
+- [Venture Capitalism](https://en.wikipedia.org/wiki/Venture_capital)
+- [Friedmanism](https://en.wikipedia.org/wiki/Milton_Friedman)
+- [Synthesis Anarchy](https://en.wikipedia.org/wiki/Synthesis_anarchism)
+- [National Bolshevism](https://en.wikipedia.org/wiki/National_Bolshevism)
+- [Roman Republicanism](https://en.wikipedia.org/wiki/Republicanism#Ancient_Rome)
+- [Religious Democracy](https://en.wikipedia.org/wiki/Religious_democracy "Christian Democracy")
+- [Putinism](https://en.wikipedia.org/wiki/Putinism)
+- [Neo Colonialism](https://en.wikipedia.org/wiki/Neocolonialism)
+- [Unionism](https://en.wikipedia.org/wiki/Unionism)
+- [Orthodox Marxism](https://en.wikipedia.org/wiki/Orthodox_Marxism)
+- [Meritocracy](https://en.wikipedia.org/wiki/Meritocracy)
+- [Animalism](https://en.wikipedia.org/wiki/Animal_Farm#Animalism "animal farm")
+## Known By People In Niches Or Schizos
+- [Benevolent Totalitarianism](https://en.wikipedia.org/wiki/Benevolent_dictatorship "Dictablanda")
+- [Bonapartism](https://en.wikipedia.org/wiki/Bonapartism)
+- [Eco Authoritarianism](https://en.wikipedia.org/wiki/Ecoauthoritarianism "KlimaDiktatur")
+- [Kleptocracy](https://en.wikipedia.org/wiki/Kleptocracy)
+- [Feminist Conservatism](https://en.wikipedia.org/wiki/List_of_conservative_feminisms)
+- [Fujimorism](https://en.wikipedia.org/wiki/Fujimorism)
+- [Feminist Liberalism](https://en.wikipedia.org/wiki/Ruth_Abbey#Feminist_liberalism)
+- [Eco Capitalism](https://en.wikipedia.org/wiki/Eco-capitalism)
+- [Luxemburgism](https://en.wikipedia.org/wiki/Rosa_Luxemburg "Spartacism")
+- [Fiscal Liberalism](https://en.wikipedia.org/wiki/Economic_liberalism)
+- [Feminist Libertarianism](https://en.wikipedia.org/wiki/Individualist_feminism)
+- [Liquid Democracy](https://en.wikipedia.org/wiki/Liquid_democracy)
+- [Voluntarism](https://en.wikipedia.org/wiki/Voluntaryism)
+- [Existentialist Anarchy](https://en.wikipedia.org/wiki/Existentialist_anarchism)
+- [Anarcho Monarchy](https://www.urbandictionary.com/define.php?term=Anarcho-Monarchism)
+- [Pol Potism](https://en.wikipedia.org/wiki/Pol_Pot)
+- [Krushchevism](https://en.wikipedia.org/wiki/Khrushchevism)
+- [Salazarism](https://en.wikipedia.org/wiki/Estado_Novo_\(Portugal\))
+- [Neo Feudalism](https://en.wikipedia.org/wiki/Neo-feudalism)
+- [State Socialism](https://en.wikipedia.org/wiki/State_socialism)
+- [Elected Monarchy](https://en.wikipedia.org/wiki/Elective_monarchy)
+- [Democratic Federalism](https://press.princeton.edu/books/hardcover/9780691202129/democratic-federalism)
+- [De Gaullism](https://en.wikipedia.org/wiki/Gaullism "Gaullism")
+- [Indigineousism](https://en.wikipedia.org/wiki/Indigenous_peoples)
+- [Constitutional Republicanism](https://simple.wikipedia.org/wiki/Constitutional_republic)
+- [Fiscalism](https://en.wikipedia.org/wiki/Fiscalism "Fiscal Conservatism")
+- [Anationalism](https://en.wikipedia.org/wiki/Anationalism)
+- [E Democracy](https://en.wikipedia.org/wiki/E-democracy)
+- [Keynesianism](https://en.wikipedia.org/wiki/Keynesian_economics)
+- [Libertarian Marxism](https://en.wikipedia.org/wiki/Libertarian_Marxism)
+- [World Federalism](https://en.wikipedia.org/wiki/World_Federalism)
+- [Falangism](https://en.wikipedia.org/wiki/Falangism)
+- [Integralism](https://en.wikipedia.org/wiki/Brazilian_Integralism)
+- [Enlightenmentism](https://en.wikipedia.org/wiki/Age_of_Enlightenment)
+- [Pan Nationalism](https://en.wikipedia.org/wiki/Pan-nationalism)
+- [Cultural Nationalism](https://en.wikipedia.org/wiki/Cultural_nationalism)
+- [Classical Conservatism](https://en.wikipedia.org/wiki/Traditionalist_conservatism)
+- [Third International Theory](https://en.wikipedia.org/wiki/Third_International_Theory "Gaddafism")
+- [National Conservatism](https://en.wikipedia.org/wiki/National_conservatism)
+- [Republican Federalism](https://en.wikipedia.org/wiki/Federalist_Party)
+- [Petersonism](https://en.wikipedia.org/wiki/Jordan_Peterson)
+- [Moderate Conservatism](https://moderaterepublican.org/home "Squishy Republicans")
+- [Identitarianism](https://en.wikipedia.org/wiki/Identitarian_movement)
+- [Anti Environmentalism](https://en.wikipedia.org/wiki/Anti-environmentalism)
+- [Left Communism](https://en.wikipedia.org/wiki/Left_communism)
+- [Classical Marxism](https://en.wikipedia.org/wiki/Classical_Marxism)
+- [Eco Conservatism](https://en.wikipedia.org/wiki/Green_conservatism)
+- [Libertarian Monarchy](http://madmonarchist.blogspot.com/2014/06/libertarian-monarchy.html)
+- [Anti Sciencism](https://en.wikipedia.org/wiki/Antiscience)
+- [Eurasianism](https://en.wikipedia.org/wiki/Eurasianism)
+- [Ethnopluralism](https://en.wikipedia.org/wiki/Ethnopluralism)
+- [Pirate Anarchy](https://en.wikipedia.org/wiki/Pirate_utopia "Pirate Utopia")
+- [Liberalism 2.0](https://katehon.com/en/article/liberalism-20 "State Liberalism")
+- [Clerical Fascism](https://en.wikipedia.org/wiki/Clerical_fascism)
+- [Utopian Socialism](https://en.wikipedia.org/wiki/Utopian_socialism "Utopianism")
+- [British Liberalism](https://www.libdems.org.uk/)
+- [Gift Economism](https://en.wikipedia.org/wiki/Gift_economy)
+- [Black Supremacism](https://en.wikipedia.org/wiki/Black_supremacy)
+- [French Constitutionalism](http://www.henricapitant.org/revue/en/french-constitutionalism-elisabeth-zoller/364)
+- [Machiavellianism](https://en.wikipedia.org/wiki/Machiavellianism_\(politics\))
+- [Sankarism](https://en.wikipedia.org/wiki/Sankarism)
+- [State Feminism](https://en.wikipedia.org/wiki/State_feminism)
+- [Raëlism](https://en.wikipedia.org/wiki/Ra%C3%ABlism "Geniocracy")
+- [New Labourism](https://en.wikipedia.org/wiki/New_Labour "Blairism")
+- [Alliance Centrism](https://en.wikipedia.org/wiki/Alliance_Party_\(United_States\) "Alliance Party Thought")
+- [L/Acc](https://en.wikipedia.org/wiki/Mark_Fisher "Left Accelerationism / See the Accelerationist Wikipedia Entry for Clarification")
+- [G/Acc](https://theanarchistlibrary.org/library/vikky-storm-the-gender-accelerationist-manifesto "Gender Accelerationism")
+- [Reactionary Progressivism](https://en.wiktionary.org/wiki/alt-left "Actual Feminazis / SJWs / Misandrists / Cliche Tumblr Users")
+- [R/Acc](https://en.wikipedia.org/wiki/Nick_Land "Right Accelerationism / See the Accelerationist Wikipedia Entry for Clarification")
+- [Jewish Nazism](https://en.wikipedia.org/wiki/Association_of_German_National_Jews)
+- [Bolivarism](https://en.wikipedia.org/wiki/Bolivarianism "Bolivarianism")
+- [Voluntary Human Extinction](https://en.wikipedia.org/wiki/Voluntary_Human_Extinction_Movement)
+- [Fordism](https://en.wikipedia.org/wiki/Fordism)
+- [Hamiltonianism](https://en.wikipedia.org/wiki/American_School_\(economics\) "American School")
+- [Post Rightism](https://www.theamericanconservative.com/postright/on-being-post-right/)
+- [Post Leftism](https://unherd.com/2021/08/twilight-of-the-american-left/)
+- [Feminist Transhumanism](http://henryjenkins.org/blog/2021/4/4/i-dont-want-to-be-flesh-feminist-transhumanism-in-years-and-years-part-two)
+- [Fully Automated Luxury Gay Space Communism](https://www.reddit.com/r/communism101/comments/5b9weg/what_is_fully_automated_luxury_gay_space_communism/)
+- [Posadism](https://en.wikipedia.org/wiki/Fourth_International_Posadist)
+- [Monarcho Capitalism](https://en.wikipedia.org/wiki/Grzegorz_Braun "Braunism")
+- [Monarcho Socialism](https://polcompball.miraheze.org/wiki/Monarcho-Socialism)
+- [Green Syndicalism](https://en.wikipedia.org/wiki/Green_anarchism#Green_syndicalism)
+- [Reactionary Socialism](https://www.marxists.org/archive/marx/works/1848/communist-manifesto/ch03.htm)
+- [Neo Reactionarism](https://en.wikipedia.org/wiki/Nick_Land)
+- [Mythicalism](https://www.merriam-webster.com/dictionary/supernaturalism "Supernaturalism")
+- [Korwinism](https://en.wikipedia.org/wiki/Janusz_Korwin-Mikke)
+- [Illegalism](https://en.wikipedia.org/wiki/Illegalism)
+- [Truman Doctrine](https://en.wikipedia.org/wiki/Truman_Doctrine)
+- [Vanguardism](https://en.wikipedia.org/wiki/Vanguardism)
+- Homo Communism
+- [Egoism](https://en.wikipedia.org/wiki/Egoism)
+- [Plutocracy](https://en.wikipedia.org/wiki/Plutocracy)
+- [Marxist Feminism](https://en.wikipedia.org/wiki/Marxist_feminism)
+- [Civic Nationalism](https://en.wikipedia.org/wiki/Civic_nationalism "National Liberalism")
+- [Rothbardism](https://en.wikipedia.org/wiki/Murray_Rothbard)
+- [Enlightened Absolutism](https://en.wikipedia.org/wiki/Enlightened_absolutism)
+- [Mobutism](https://en.wikipedia.org/wiki/Mobutu_Sese_Seko)
+- [Ultra Nationalism](https://en.wikipedia.org/wiki/Ultranationalism "Chauvinism")
+- [Girondism](https://en.wikipedia.org/wiki/Girondins)
+- [Castle Doctrine](https://en.wikipedia.org/wiki/Castle_doctrine)
+- [Ba'athism](https://en.wikipedia.org/wiki/Ba%27athism)
+- [Social Conservatism](https://en.wikipedia.org/wiki/Social_conservatism)
+- [State Atheism](https://en.wikipedia.org/wiki/State_atheism)
+## Ideology Enthusiast
+- [Hoxhaism](https://en.wikipedia.org/wiki/Hoxhaism)
+- [Homo Nationalism](https://en.wikipedia.org/wiki/Homonationalism)
+- [Eco Socialism](https://en.wikipedia.org/wiki/Eco-socialism)
+- [Acid Communism](https://books.google.es/books/about/Acid_Communism.html?id=CjA9EAAAQBAJ&printsec=frontcover&source=kp_read_button&hl=en&redir_esc=y#v=onepage&q&f=false)
+- [Bull Moose Progressivism](https://en.wikipedia.org/wiki/Progressive_Party_\(United_States,_1912\))
+- [Syncretic Liberalism](https://en.wikipedia.org/wiki/Big_tent)
+- [Eco Democracy](http://www.diva-portal.org/smash/get/diva2:765638/FULLTEXT01.pdf)
+- [Kakistocracy](https://en.wikipedia.org/wiki/Kakistocracy)
+- [Makhnoism](https://en.wikipedia.org/wiki/Nestor_Makhno)
+- [Left Rothbardism](https://polcompball.miraheze.org/wiki/Left-Rothbardianism)
+- [War Communism](https://en.wikipedia.org/wiki/War_communism)
+- [Carlism](https://en.wikipedia.org/wiki/Carlism)
+- [Legionairism](https://en.wikipedia.org/wiki/Iron_Guard)
+- [Necrocracy](https://en.wiktionary.org/wiki/necrocracy)
+- [Jacksonian Democracy](https://en.wikipedia.org/wiki/Jacksonian_democracy)
+- [Euro Communism](https://en.wikipedia.org/wiki/Eurocommunism)
+- [Liberal Conservatism](https://en.wikipedia.org/wiki/Liberal_conservatism)
+- [Civil Libertarianism](https://en.wikipedia.org/wiki/Civil_libertarianism)
+- [Conservative Liberalism](https://en.wikipedia.org/wiki/Conservative_liberalism)
+- [Socialist Minarchy](https://en.wikipedia.org/wiki/Night-watchman_state)
+- [Neo Enlightenmentism](https://en.wikipedia.org/wiki/Dark_Enlightenment)
+- [Anarcho Frontierism](https://polcompball.miraheze.org/wiki/Anarcho-Frontierism)
+- [Anarcho Collectivism](https://en.wikipedia.org/wiki/Collectivist_anarchism)
+- [Polish Falangism](https://en.wikipedia.org/wiki/National_Radical_Camp)
+- [Crusadism](https://en.wikipedia.org/wiki/Crusades)
+- [Black Hundredism](https://en.wikipedia.org/wiki/Black_Hundreds)
+- [Pan Africanism](https://en.wikipedia.org/wiki/Pan-Africanism)
+- [Nietzcheanism](https://en.wikipedia.org/wiki/Friedrich_Nietzsche)
+- [Fuentesism](https://en.wikipedia.org/wiki/Nick_Fuentes "Groyper Thought")
+- [Kahanism](https://en.wikipedia.org/wiki/Kahanism)
+- [Hapsburgism](https://en.wikipedia.org/wiki/House_of_Habsburg)
+- [Conservative Socialism](https://en.wikipedia.org/wiki/Bourgeois_socialism "patsocs")
+- [Orwellism](https://en.wikipedia.org/wiki/George_Orwell)
+- [Right Wing Social Justicism](http://www.thepursuitofhappiness.com/real-social-justice/conservative-vision-social-justice/ "this whole article is fucking stupid but its the best link. remember gamergate? the idiots behind that could be considered to be a part of this")
+- Marxist Conservatism
+- [Nativism](https://en.wikipedia.org/wiki/Nativism_\(politics\))
+- [National Libertarianism](https://polcompball.miraheze.org/wiki/National_Libertarianism)
+- [American Confederalism](https://en.wikipedia.org/wiki/Confederate_States_of_America "Confederatism")
+- [Hindutva Thought](https://en.wikipedia.org/wiki/Hindutva)
+- [Warlordism](https://en.wikipedia.org/wiki/Warlord)
+- [Religious Anarchy](https://en.wikipedia.org/wiki/Anarchism_and_religion)
+- [Old Anarchy](https://en.wikipedia.org/wiki/Christian_anarchism)
+- [Veganarchy](https://en.wikipedia.org/wiki/Anarchism_and_animal_rights)
+- [Anocracy](https://en.wikipedia.org/wiki/Anocracy)
+- [Hegelism](https://en.wikipedia.org/wiki/Georg_Wilhelm_Friedrich_Hegel)
+- [Kantism](https://en.wikipedia.org/wiki/Immanuel_Kant)
+- [Ordo Liberalism](https://en.wikipedia.org/wiki/Ordoliberalism)
+- [Nasserism](https://en.wikipedia.org/wiki/Nasserism)
+- [Kraterocracy](https://en.wikipedia.org/wiki/Might_makes_right)
+- [Christian Theocracy](https://en.wikipedia.org/wiki/Theocracy)
+- [Islamic Theocracy](https://en.wikipedia.org/wiki/Theocracy)
+- [Hindu Theocracy](https://polcompball.miraheze.org/wiki/Hindu_Theocracy)
+- [Jewish Theocracy](https://en.wikipedia.org/wiki/Theocracy)
+- [Protestant Theocracy](https://polcompball.miraheze.org/wiki/Protestant_Theocracy)
+- [Radicalism](https://en.wikipedia.org/wiki/Classical_radicalism "Radical Liberalism")
+- [Eco Fascism](https://en.wikipedia.org/wiki/Ecofascism)
+- [Scholasticism](https://en.wikipedia.org/wiki/Scholasticism)
+- [Homo Fascism](https://en.wikipedia.org/wiki/Gay_Nazis_myth)
+- [Hutu Power](https://en.wikipedia.org/wiki/Hutu_Power)
+- [Maoism Third Worldism](https://en.wikipedia.org/wiki/Maoism%E2%80%93Third_Worldism)
+- [Moderate Liberalism](https://en.wikipedia.org/wiki/Moderate_Liberal_Party)
+- [Bookchin Communalism](https://www.democracynature.org/vol3/bookchin_communalism.htm)
+- [Anti Humanism](https://en.wikipedia.org/wiki/Antihumanism)
+- [Conquestialism](https://en.wikipedia.org/wiki/Conquest)
+- [Distributist Monarchy](https://polcompball.miraheze.org/wiki/Monarcho-Distributism)
+- [Jreg Capitalist Communism](https://www.youtube.com/watch?v=WbiCeoyQjtg)
+- Right Mythicalism
+- Left Mythicalism
+- [Radical Apoliticism](https://polcompball.miraheze.org/wiki/Radical_Apoliticism)
+- [Monarcho Communism](https://en.wikipedia.org/wiki/People%27s_Revolutionary_Government)
+- [Illuminatism](https://en.wikipedia.org/wiki/Illuminati)
+- [969 Movement](https://en.wikipedia.org/wiki/969_Movement)
+- [Neo Sovietism](https://en.wikipedia.org/wiki/Neo-Sovietism)
+- [Bundism](https://en.wikipedia.org/wiki/Bundism)
+- [Caudillism](https://en.wikipedia.org/wiki/Caudillo)
+- [Geo Libertarianism](https://en.wikipedia.org/wiki/Geolibertarianism)
+- [Bordigaism](https://en.wikipedia.org/wiki/Amadeo_Bordiga)
+- [National Capitalism](https://polcompball.miraheze.org/wiki/National_Capitalism)
+- [Showa Statism](https://en.wikipedia.org/wiki/Hirohito)
+- [Bolsonarism](https://en.wikipedia.org/wiki/Jair_Bolsonaro)
+- [Liberal Hawk](https://en.wikipedia.org/wiki/Liberal_hawk)
+- [Ghandism](https://en.wikipedia.org/wiki/Mahatma_Gandhi)
+- [Red Toryism](https://en.wikipedia.org/wiki/Red_Tory)
+## 12 Year Old Political Compass Addict Tier
+- [Esoteric Socialism](https://en.wikipedia.org/wiki/Freemasonry "Free Masons")
+- [Frankfurtianism](https://en.wikipedia.org/wiki/Frankfurt_School)
+- Liberalterianism
+- Cosmopolitanism
+- [Laiciteism](https://en.wikipedia.org/wiki/Secularism_in_France)
+- [Mao Spontex](https://en.wikipedia.org/wiki/Revolutionary_spontaneity)
+- Classical Libertarianism
+- Syncretic Libertarianism
+- Transhumanist Libertarianism
+- Eco Libertarianism
+- Social Georgism
+- [Capitalist Agorism](https://nationals.org.au/ "cant find a general definition, so enjoy this specific case of it")
+- [Anarcho Transhumanism](https://hpluspedia.org/wiki/Anarcho-transhumanism)
+- [Hungarism](https://en.wikipedia.org/wiki/Arrow_Cross_Party)
+- [Mladarossism](https://en.wikipedia.org/wiki/Mladorossi)
+- Classical Nationalism
+- Cameralism
+- [Turanism](https://en.wikipedia.org/wiki/Turanism)
+- [Gorbachevism](https://en.wikipedia.org/wiki/Mikhail_Gorbachev)
+- [Tridemism](https://en.wikipedia.org/wiki/Three_Principles_of_the_People)
+- [Green Zionism](https://en.wikipedia.org/wiki/Green_Zionism "Eco Zionism")
+- Social Corporatism
+- [Noocracy](https://en.wikipedia.org/wiki/Noocracy)
+- Centrist Marxism
+- Bankocracy
+- Hyper Revisionism
+- Capitalist Welfarism
+- Neo Libertarianism
+- Hydrarchy
+- [Hayekism](https://en.wikipedia.org/wiki/Friedrich_Hayek)
+- Social Minarchy
+- Geo Syndicalism
+- Paternal Libertarianism
+- [Holism](https://en.wikipedia.org/wiki/Holism)
+- Naturism
+- [Participism](https://en.wikipedia.org/wiki/Michael_Albert)
+- Platformism
+- Anarcho Distributism
+- Anarcho Naturism
+- Medievalism
+- Jingoism
+- National Feudalism
+- Wahhadism
+- Religious Zionism
+- Anarcho Totaltitarianism
+- Banderaism
+- [Zhukovism](https://en.wikipedia.org/wiki/Georgy_Zhukov)
+- Marhaenism
+- Pancasilaism
+- Primal Primitivism
+- One Nation Conservatism
+- Kirkism
+- Autonomism
+- Neo Libertarian Conservatism
+- Libertarian Conservatism
+- Religious Libertarianism
+- Lysenkoism
+- National Libertarian Socialism
+- National Georgism
+- Communitarianism
+- Specifism
+- Libertarian Pacifism
+- Reactionary Libertarianism
+- Anarcho Pacifism
+- Post Colonial Anarchy
+- Colonial Anarchy
+- [Ceaușism](https://en.wikipedia.org/wiki/Nicolae_Ceau%C8%99escu)
+- Transhumanist Minarchy
+- Reactionary Liberalism
+- [Socialism of the 21st Century](https://en.wikipedia.org/wiki/Socialism_of_the_21st_century#Buen_vivir)
+- [Blue Shirtism](https://en.wikipedia.org/wiki/Blue_Shirts_Society)
+- [Revanchism](https://en.wikipedia.org/wiki/Revanchism)
+- [Eco Trotskyism](https://climateandcapitalism.com/2009/04/24/leon-trotsky-and-ecology/)
+- [Timocracy](https://en.wikipedia.org/wiki/Timocracy)
+- [Dark Enlightenmentism](https://en.wikipedia.org/wiki/Dark_Enlightenment)
+- Right Unitarianism
+- Left Unitarianism
+- [Kadarism](https://en.wikipedia.org/wiki/Goulash_Communism "Goulash Communism")
+- [Khomeinism](https://en.wikipedia.org/wiki/Ruhollah_Khomeini)
+- [Red Fascism](https://en.wikipedia.org/wiki/Red_fascism)
+- Marxist Liberalism
+- [National Transhumanism](https://theswaddle.com/transhumanism-jeffrey-epstein/)
+- [British Fascism](https://en.wikipedia.org/wiki/British_fascism "Mosleyism")
+- [De Francism](https://en.wikipedia.org/wiki/Jos%C3%A9_Gaspar_Rodr%C3%ADguez_de_Francia)
+- [Political Buddhism](https://www.oxfordbibliographies.com/view/document/obo-9780195393521/obo-9780195393521-0251.xml)
+- [Futurism](https://en.wikipedia.org/wiki/Futurist_Political_Party)
+- [Neorhino Thought](https://en.wikipedia.org/wiki/Rhinoceros_Party)
+- [Social Libertarianism](https://polcompball.miraheze.org/wiki/Social_Libertarianism)
+- [Buddhist Theocracy](https://polcompball.miraheze.org/wiki/Buddhist_Theocracy)
+- [Carcinizationism](https://en.wikipedia.org/wiki/Carcinisation)
+- Technocratic Liberalism
+- [Anti Revivalism](https://polcompballanarchy.miraheze.org/wiki/Anti-Kinemortoism)
+- Crypto Anarchy
+- [Crypto Capitalism](https://polcompballanarchy.miraheze.org/wiki/Crypto-Capitalism)
+- [Ergatocracy](https://en.wiktionary.org/wiki/ergatocracy)
+- [Mediarchy](https://www.wiley.com/en-us/Mediarchy-p-9781509533381)
+- Social Distributism
+- [Unironic Senatorialism](https://en.wikipedia.org/wiki/Senate "ideology that exists only as a brother to another, if i include senatorialism i must include this as a clarification")
+- Marxist Primitivism
+- [Machajskism](https://en.wikipedia.org/wiki/Jan_Wac%C5%82aw_Machajski)
+- [Combatocracy](https://www.reddit.com/r/Combatocracy/)
+- [Panarchy](https://en.wikipedia.org/wiki/Paul_%C3%89mile_de_Puydt#Panarchy)
+- [Gerontocracy](https://en.wikipedia.org/wiki/Gerontocracy)
+- [Stransserism](https://polcompball.miraheze.org/wiki/Stransserism)
+- [Thomism](https://en.wikipedia.org/wiki/Thomas_Aquinas)
+- [Odalism](https://en.wikipedia.org/wiki/Anders_Behring_Breivik)
+- [Allendeism](https://en.wikipedia.org/wiki/Salvador_Allende)
+- [Capitalist Communism](https://polcompball.miraheze.org/wiki/Capitalist_Communism)
+- [Afrikaner Weerstandsbeweging](https://en.wikipedia.org/wiki/Afrikaner_Weerstandsbeweging)
+- [Lys Noir](https://fr.wikipedia.org/wiki/Lys_noir_\(politique\))
+- [Fabian Socialism](https://en.wikipedia.org/wiki/Fabian_Society)
+- Communist Minarchy
+## Beginning Of The 80 Of The 80/20
+- Modern Roman Republicanism
+- [Dubčekism](https://en.wikipedia.org/wiki/Alexander_Dub%C4%8Dek)
+- Orangism
+- Gravelism
+- Socialist Transhumanism
+- Alaskaism
+- Capitalist Transhumanism
+- [Libertine Thought](https://en.wikipedia.org/wiki/Libertine)
+- Supremocracy
+- [Beriaism](https://es.wikipedia.org/wiki/Lavrenti_Beria)
+- Chicago Libertarianism
+- Stratocracy
+- Paternal Socialism
+- Neo Trotskyism
+- Moderatocracy
+- Socialist Agrarianism
+- Confessionalism
+- Kafkaism
+- Overtonism
+- Internet Satirism
+- Centrist Sympasizism
+- Post Statism
+- Boogaloo
+- Ethical Capitalism
+- Scientocracy
+- Kardashevism
+- Liberal Agorism
+- Facism
+- Union Syndicalism
+- Libertarian Distributism
+- Geo Distributism
+- Insurrectionary Syndicalism
+- Autarchy
+- Independece Anarchy
+- Anarcho Agrarianism
+- Chaosism
+- Evolaism
+- Sorelianism
+- Guild Socialism
+- National Agrarianism
+- Kibbutzism
+- Lawsonomy
+- Gray Centrism
+- Ethnocacerism
+- La Plainism
+- Black Islamism
+- Western Trotskyism
+- New Australia Movement
+- Transcendentalism
+- De Leonism
+- Frontierism
+- Syncretism
+- Religious Nihilism
+- Situationism
+- Paleo Minarchy
+- Total Liberationism
+- Anarcho Taoism
+- Anarcho Nationalism
+- Anarcho Nazism
+- Eusocialism
+- Bioequalitism
+- State Naturism
+- Gerrymanderism
+- Wholesome 100ism
+- Bukharinism
+- Regulationism
+- Leanerism
+- Urbism
+- Socialist Tehnocracy
+- Left Anarcho Communism
+- National Integralism
+- Black Anarchy
+- [Muscular Liberalism](https://en.wikipedia.org/wiki/Muscular_liberalism)
+- IsmIsm
+- [Tankieism](https://en.wikipedia.org/wiki/Tankie)
+- Avaritionism
+- Soulism
+- [Hive Mind Collectivism](https://polcompball.miraheze.org/wiki/Hive-Mind_Collectivism)
+- [Death Worship](https://en.wikipedia.org/wiki/Political_geography_of_Nineteen_Eighty-Four#Eurasia_and_Eastasia)
+- [Diarchy](https://en.wikipedia.org/wiki/Diarchy)
+- [United Order](https://en.wikipedia.org/wiki/United_Order%20%20%20https://www.churchofjesuschrist.org/study/scriptures/gs/united-order?lang=eng%20%20%20https://historytogo.utah.gov/united-order/ "Mormon Fundamentalism")
+- Eco Transhumanism
+- Anarcho FALGSC
+- [Neo Bolshevism](https://en.wikipedia.org/wiki/Political_geography_of_Nineteen_Eighty-Four#Eurasia_and_Eastasia)
+- [Saadehism](https://en.wikipedia.org/wiki/Antoun_Saadeh)
+- Ego Syndicalism
+- Ego Communalism
+- [Nilssonianism](https://www.goodreads.com/book/show/36266928-anarcho-fascism)
+- Ego Capitalism
+- Collectivistic Egoism
+- Ego Mutualism
+- Ego Communism
+- [Žižekism](https://en.wikipedia.org/wiki/Slavoj_%C5%BDi%C5%BEek)
+- Robuxism
+- [Communard Movement](https://en.wikipedia.org/wiki/Communards)
+- [Orthodox Theocracy](https://polcompball.miraheze.org/wiki/Orthodox_Theocracy)
+- Anarcho CryptoCap
+- Hybernocracy
+- Socialist Georgism
+- Class Dealignmentism
+- Neo Liberaltarianism
+- Technocratic Minarchy
+- Senatorialism
+- [Ilminism](https://en.wikipedia.org/wiki/Ilminism)
+- [Naxalitism](https://en.wikipedia.org/wiki/Naxalite%E2%80%93Maoist_insurgency)
+- Zapatism
+- Communist Transhumanism
+- Horrivelism
+- Anarcho Fascism
+- Neo Minarchy
+- Eco Minarchy
+- Anarcho Communalism
+- [Sustainable Development Marxism](https://monthlyreview.org/2005/10/01/marxs-vision-of-sustainable-human-development/)
+- Daoist Anarchism
+## Schizo Tier
+- Eco Hive Mind Collectivism
+- Reactionary Modernism
+- Homo Trotskyism
+- Kratosism
+- Eco Libertarian Socialism
+- Classical Libertarian Socialism
+- Authoritarian Nihilism
+- Moderate Authoritarianism
+- Social Capitalism
+- Capitalist Irredentism
+- Libertarian Market Socialism
+- [Lange Model](https://en.wikipedia.org/wiki/Lange_model "Neoclassical Socialism")
+- Libertarian Egalitarianism
+- Libertarian SocDem
+- Partisanism
+- Anarcho Illuminatism
+- T.H.E.T.I
+- Fully Automated Luxury Communism
+- [Stelism](https://en.wikipedia.org/wiki/Crusade_of_Romanianism "Crusade of Romanianism")
+- Metaxism
+- Labour Zionism
+- Silver Legionism
+- [Zabalazaism](https://en.wikipedia.org/wiki/Zabalaza_Anarchist_Communist_Front "Zabalaza Thought")
+- Religious Marxism
+- Monetarism
+- Feuillantism
+- Horthyism
+- Ergotism
+- Athenian Democracy
+- National Minarchy
+- Propertarianism
+- Neo Zapatism
+- Alt Globalism
+- Ochlocracy
+- 0/Acc
+- Paternal Autocracy
+- [Arachnism](https://en.uncyclopedia.co/wiki/Arachnism)
+- Monarcho Transhumanism
+- Isocracy
+- Bio Regionalism
+- Social Optimism
+- [Xeno Feminism](https://laboriacuboniks.net/manifesto/xenofeminism-a-politics-for-alienation/)
+- Satanic Theocracy
+- Geo Minarchy
+- Geo Piratism
+- [Turklerism](https://en.wikipedia.org/wiki/Kemal_T%C3%BCrkler)
+- [Yellow Socialism](https://en.wikipedia.org/wiki/Yellow_socialism)
+- [Ultravisionary Socialism](https://the-new-order-last-days-of-europe.fandom.com/wiki/Andrei_Zhdanov)
+- [ENLIGHTENED CENTRISM](https://www.reddit.com/r/ENLIGHTENEDCENTRISM/)
+- [Manchester Liberalism](https://en.wikipedia.org/wiki/Manchester_Liberalism)
+- Centrist Egoism
+- Ego Primitivism
+- Capitalist Communalism
+- [Millism](https://en.wikipedia.org/wiki/John_Stuart_Mill)
+- [Agressivism](https://polcompballanarchy.miraheze.org/wiki/Aggressivism)
+- Khanism
+- Circulus Theory
+- [Antidisestablishmentarianism](https://en.wikipedia.org/wiki/Antidisestablishmentarianism)
+- [Fusionism](https://en.wikipedia.org/wiki/Fusionism)
+- [Deleuzism](https://en.wikipedia.org/wiki/Gilles_Deleuze)
+- [Jacobitism](https://en.wikipedia.org/wiki/Jacobitism)
+- [Seed Theory](https://en.wikipedia.org/wiki/On_the_Art_of_the_Cinema)
+- [Strict Socialism](https://polcompballanarchy.miraheze.org/wiki/Strict_Socialism)
+- Cyberocracy
+## Cultured Beliefs
+- Bio Posadism
+- Absurdism
+- [Dawronoye](https://en.wikipedia.org/wiki/Dawronoye)
+- Anarcho Bio Posadism
+- Post Left Egoism
+- Hyperboreaism
+- Eco NazBol
+- Capitalist Posadism
+- Militant Social Democracy
+- Social Demarchy
+- Socialist Demarchy
+- [Speculativism](https://www.investopedia.com/terms/s/speculation.asp)
+- [Archeo Futurism](https://books.google.es/books/about/Archeofuturism.html?id=Sox12Y4fMY0C&source=kp_book_description&redir_esc=y)
+- Licentian Theory
+- Anarcho Posadism
+- Post Post Modernism
+- [Burgundian System](https://the-new-order-last-days-of-europe.fandom.com/wiki/SS_State_of_Burgundy)
+- National Communism
+- Right Mutualism
+- [Phyletism](https://en.wikipedia.org/wiki/Phyletism)
+- Anarcho NATOism
+- Alt Lite
+- Bibism
+- Voegelinism
+- [Taboritskyism](https://es.wikipedia.org/wiki/Sergey_Taboritsky)
+- [Buddhist Communism](https://en.wikipedia.org/wiki/Buddhist_socialism)
+- [Buddhist Socialism](https://en.wikipedia.org/wiki/Buddhist_socialism)
+- [Ujamaaism](https://en.wikipedia.org/wiki/Ujamaa)
+- Reactionary Minarchy
+- Anarcho NazBol
+- Anarcho Propertarianism
+- Expropriative Anarchy
+- Blanquism
+- Neo Capitalism
+- [Cullism](https://en.wikipedia.org/wiki/Culling)
+- [Arachna Feminism](https://en.uncyclopedia.co/wiki/Arachnism "Feminist Arachnism")
+- [Social Arachnism](https://scp-wiki.wikidot.com/scp-1006 "refer to the original uncyclopedia link")
+- Capitalist Arachnism
+- Syndicalist Arachnism
+- Individualist Arachnism
+- [Ultramontanism](https://en.wikipedia.org/wiki/Ultramontanism)
+- Syndicalist Longism
+- Neo Marxism Leninism Maoism
+- Ulprodemocracy
+- Technogaianism
+- Cracyocracy
+- Anarcho Conservatism
+- [Rastafarian Theocracy](https://polcompballanarchy.miraheze.org/wiki/Rastafarian_Theocracy)
+- [Anglican Theocracy](https://en.wikipedia.org/wiki/Henry_VIII)
+- [Chinese Theocracy](https://polcompball.miraheze.org/wiki/Chinese_Theocracy)
+- [Thought Thought](https://polcompballanarchy.miraheze.org/wiki/Thought_Thought)
+- [Cosmicism](https://en.wikipedia.org/wiki/Cosmicism)
+- [Homo NazBol](https://polcompballanarchy.miraheze.org/wiki/Homonational_Bolshevism)
+- An/Acc
+- Religious Mutualism
+- Hyper Anarchy
+- [Philosophical Anarchy](https://en.wikipedia.org/wiki/Philosophical_anarchism)
+- Yezhovism
+- [Steiner-Vallentyne Thought](https://polcompball.miraheze.org/wiki/Steiner-Vallentyne_School)
+- Bernsteinism
+- Papineauism
+## Acute Brain Damage
+- Bleeding Heart Socialism
+- [Freecoism](https://freeco.org/index-en "Uberism")
+- Post Post Leftism
+- Post Right Anarchy
+- Grey Gooism
+- Cthulhuism
+- [Marighellaism](https://en.wikipedia.org/wiki/Carlos_Marighella)
+- Expeditism
+- Sablinism
+- Political Existentialism
+- Anarcho Keynesianism
+- Anarcho Ninjaism
+- Paetelism
+- Neo Socialism
+- Zyuganovism
+- National Primitivism
+- Monarcho Fascism
+- Austrian Marxism
+- Lemon Socialism
+- Duginism
+- Neo Cameralism
+- Mythical Reactionarism
+- Venizelism
+- Capitalist Primitivism
+- Malthusianism
+- Post Post Rightism
+- Siegeism
+- Donovan Anarcho Fascism
+- Nomadism
+- Geo Hoppeanism
+- Post Left Anarchy
+- [Mutualist Syndicalism](https://polcompballanarchy.miraheze.org/wiki/Mutualist-Syndicalism)
+- Hobbesism
+- [Just War Theory](https://en.wikipedia.org/wiki/Just_war_theory)
+- Anarcho Epsteinism
+- Libertarian Feudalism
+- Gallicanism
+- Quesnayism
+- Proto Liberalism
+- Anarcho Falangism
+- Utopian Social Democracy
+- [Really Really Free Market Thought](https://en.wikipedia.org/wiki/Really_Really_Free_Market)
+- [Neo Eurasianism](https://en.wikipedia.org/wiki/Eurasia_Movement)
+- [BritannoCommunism](https://en.wikipedia.org/wiki/Communist_Party_of_Britain)
+- Non Euclidean Georgism
+- National Socialist Georgism
+- National Socialist Minarchy
+- Optimateism
+- Populareism
+- [Nechayevism](https://en.wikipedia.org/wiki/Sergey_Nechayev)
+## Greenpilled
+- Positivism
+- Vespinism
+- Boloism
+- Romantic Capitalism
+- Slothism
+- Market Soulism
+- U/Acc
+- Anarcho Altruism
+- Direct Theocracy
+- Burmese Communism
+- Neo Technocracy
+- Incentivism
+- Geo Communism
+- Anarcho Georgism
+- Ego Monarchy
+- Barrack Communism
+- Perkonkrustsism
+- Geo Fascism
+- Volkism
+- Narodnism
+- Kirchnerism
+- Wobblyism
+- Zhirinovism
+- Rattachism
+- Praxagorism
+- Guild Syndicalism
+- Ignorantism
+- Zoroastrian Theocracy
+- Broussism
+- Zen Capitalism
+- Thalassocracy
+- Tellurocracy
+- Gaitskellism
+- Leuenrothism
+- Quasi Centrism
+- Vandalismism
+- Post Humanism
+- Transhumanist Obamaism
+- SocDem Georgism
+- Menshevism
+- Regulationist Capitalism
+- Thanato Posadism
+- Gopnism
+- [Imperial Esoteric Fascism](https://www.reddit.com/r/newwackyideologies/comments/inbmsc/imesfa/)
+- Utopian Socialist Monarchy
+- [Lumumbaism](https://en.wikipedia.org/wiki/Patrice_Lumumba)
+- [Pastafarian Theocracy](https://en.wikipedia.org/wiki/Flying_Spaghetti_Monster)
+- [S.H.A.R.P. Thought](https://en.wikipedia.org/wiki/Skinheads_Against_Racial_Prejudice)
+- [Tetrarchy](https://en.wikipedia.org/wiki/Tetrarchy)
+- [Oligarchic Collectivism](https://en.wikipedia.org/wiki/The_Theory_and_Practice_of_Oligarchical_Collectivism "Goldsteinism")
+- [Cantelmoism](https://cantelmoism.com/)
+- [Eco Maoism](https://anti-imperialism.org/2017/10/06/deep-green-maoism/)
+- Neo Malthusianism
+- Fitzhughism
+- Diggerism
+- Helvetic Model
+- [Gromykism](https://en.wikipedia.org/wiki/Andrei_Gromyko "not the definition on pcba, rather the ideology of Gromyko if you believe he was the \"true\" leader of the ussr and all leaders were his puppets")
+- [Anarcho Smashism](https://polcompballanarchy.miraheze.org/wiki/Anarcho-Smashism)
+- Cocoon Communism
+- Cocoon Capitalism
+- [Insurrectionary Progressivism](https://books.google.com.bo/books?id=PdbuwzJPnZQC&printsec=frontcover#v=onepage&q&f=false "progressive rioters, who are more anarchist")
+## Federal Agent
+- English Posadism
+- English Ecologism
+- Crypto NazCap
+- Bio Leninism
+- Anti Moderatism
+- [Neo Georgism](https://cooperative-individualism.org/andelson-robert_critics-of-henry-george-1979-27-neo-georgism-by-robert-v-andelson.pdf)
+- Fiscal Transhumanism
+- English Communism
+- English Capitalism
+- National Centrist Bolshevism
+- Getulism
+- Currency Worship
+- [Progressive Utilization Theory](https://en.wikipedia.org/wiki/Progressive_utilization_theory "Proutism")
+- [Mexican Populism](https://en.wikipedia.org/wiki/Institutional_Revolutionary_Party)
+- [Vonsiatskyism](https://en.wikipedia.org/wiki/Anastasy_Vonsiatsky)
+- English Primitvism
+- English Egoism
+- Strasserist Agrarianism
+- Gonodism
+- Sanationism
+- John Of Leiden Thought
+- Red Liningism
+- Ricardian Socialism
+- Anarcho Ochlocracy
+- Paleo Libertarian Socialism
+- Socialist Confederalism
+- Libertarian Confederalism
+- Neo Hoppeanism
+- Tinism
+- Anti Ideologism
+- Mariateguism
+- Anarcho Feudalism
+- English Soulism
+- Zenarchy
+- [Mafia Statism](https://en.wikipedia.org/wiki/Mafia_state)
+- Brezhnevism
+- Muñozism
+- Babouvism
+- Norsefireism
+- [White Jucheism](https://polcompballanarchy.miraheze.org/wiki/White_Juche)
+- Libertarian Populism
+- Strict Georgism
+- [Sarmatism](https://en.wikipedia.org/wiki/Sarmatism)
+- [The Important Thought of Three Represents](https://en.wikipedia.org/wiki/Three_Represents "Jiang Zeming Thought")
+- [LaVeyan Satanism](https://en.wikipedia.org/wiki/LaVeyan_Satanism)
+- [Non-ism](https://www.reddit.com/r/newwackyideologies/comments/gkmx9j/nonism_the_belief_that_we_should_use_no_political/)
+- [Baha'ism](https://en.wikipedia.org/wiki/Bah%C3%A1%CA%BC%C3%AD_Faith)
+- [Insurrectionary Indigineousism](https://en.wikipedia.org/wiki/American_Indian_Movement)
+- [Asocialism](https://polcompballanarchy.miraheze.org/wiki/Asocialism)
+- [Anarcho Kakistocracy](https://4chan.org/b/)
+- [Stanislavskism](https://en.wikipedia.org/wiki/Stanislavski%27s_system "urban dictionary definition is better but wiki has a definition so")
+## Severe Aneurysm
+- All Seeing Totalitarianism
+- Corporate Eternalism
+- Neo Left Communism
+- Meso Liberalism
+- Omegamartism
+- Quantumism
+- Hive Beingism
+- Benefactorialism
+- Synarchy
+- [Tkachevism](https://en.wikipedia.org/wiki/Pyotr_Tkachev)
+- Infinite Marxism
+- [Monteirism](https://psionicpartypsionicsglobal.wordpress.com/2020/08/02/introduction-to-monteirism/)
+- Plamism
+- Cliffism
+- Anti Populism
+- Contemporary Libertarianism
+- Marxist Isocracy
+- Rothbardian Marxism
+- Consequentialism
+- Post Anarchy
+- Anarcho Senatorialism
+- Biblically Accurate Angelicism
+- Japanese Communism
+- Jabłonowskism
+- Paleo Socialism
+- [Olavism](https://en.wikipedia.org/wiki/Olavo_de_Carvalho "smoking is good for you")
+- Ghiraldism
+- [Fjordism](https://www.thefjordlife.com/ "for more info, refer to original pcba article")
+- White Capitalism
+- Divinialism
+- Anarcho Unionism
+- [Affirmative Conservatism](https://polcompballanarchy.miraheze.org/wiki/Affirconservatism)
+- [New Nationalism](https://en.wikipedia.org/wiki/Conservative_Revolution)
+- Classical SocDem
+- Radical Democracy
+- Levellerism
+- Uber Wokism
+- Polybiusism
+- Cogitattism
+- Liftocracy
+- Mafiaism
+- [Psionicism](https://psionicpartypsionicsglobal.wordpress.com/)
+- [Paleo Egyptianism](https://en.wikipedia.org/wiki/Ancient_Egypt)
+- [Pepsi Stratocracy](https://www.businessinsider.com/how-pepsi-briefly-became-the-6th-largest-military-in-the-world-2018-7)
+- Impetism
+- Reverse Soulism
+- AMism
+- Mazzinianism
+- Maurassism
+- [Jaffeism](https://en.wikipedia.org/wiki/David_Jaffe "pcba inside joke, to an extent")
+- [Syrizaism](https://en.wikipedia.org/wiki/Syriza "Reluctant Neo Liberalism")
+- [Telekommunism](http://telekommunisten.net/the-telekommunist-manifesto/)
+- Smerism
+## Complete Loss Of Reason Or Sanity
+- Nullism
+- Voidism
+- Kingism
+- Feelism
+- Omni Freeism
+- Omni Hiveism
+- Omni Forceism
+- Earthling Communism
+- Micro Competitivism
+- Kakistocratic Primalism
+- Meta Anarchy
+- Romantic Kraterocracy
+- Potlatchism
+- [Minarcho Mutualism](https://polcompballanarchy.miraheze.org/wiki/Minarcho-Mutualism)
+- Esoteric Marxism
+- Fiscal Capitalism
+- Nihilistic Kraterocracy
+- Alberdianism
+- [FM-2030 Thought](https://en.wikipedia.org/wiki/FM-2030)
+- Personalism
+- Dutch Centrism
+- Tolstoyism
+- Oikoism
+- Archeo Anarcho Frontierism
+- Omni Pacifism
+- Paleo Avaritionism
+- Omni Sinism
+- Omni Market
+- Imperiumism
+- Wallexism
+- [Maurinism](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Maur%C3%ADn)
+- [Đilasism](https://en.wikipedia.org/wiki/Milovan_Djilas)
+- [Kalachevism](https://en.wikipedia.org/wiki/Beer_Lovers_Party_\(Russia\))
+- Gluttoncracy
+- Hive Mind Individualism
+- Bolsojucheism
+- Saturnalianism
+- Cringeism
+- [Shooterism](https://en.wikipedia.org/wiki/Shooters,_Fishers_and_Farmers_Party)
+- [Fisherism](https://en.wikipedia.org/wiki/Shooters,_Fishers_and_Farmers_Party)
+- [Farmerism](https://en.wikipedia.org/wiki/Shooters,_Fishers_and_Farmers_Party)
+- National Psionicism
+- Awtokism
+- Autodaleism
+- Order Of Nine Angles Thought
+- F.I.A.T
+- Free Market Liquid Democracy
+- [Sandism](https://theanarchistlibrary.org/library/anonymous-desert "this first showed up in a video by jreg and i couldnt find much on it. closest is an anarchist book called \"desert\"")
+- Bolshevik Nationalism
+## Arrested If You Mention These In Public
+- Esoteric Capitalism
+- Subgeniusism
+- Completely Manual Primal Straight Underground Capitalism
+- Hyper Workerism
+- Esoteric Conservatism
+- Neo Keynesianism
+- Proto Keynesianism
+- Kogosianism
+- Meso Conservatism
+- Montaukism
+- Reactionary Communism
+- Anarcho Jazzism
+- Off Bidenism
+- Arendtism
+- Amoderatism
+- Quasi Moderatism
+- Khorneism
+- Nationalist Keynesianism
+- Geo Posadism
+- Alt Buddhism
+- Brandism
+- Nuclear Pacifism
+- Mega Corporatocracy
+- Cartel Crime Model
+- Black Market Capitalism
+- Ethical Darwinism
+- Equal Anarchy
+- Monarcho Communalism
+- [Loveism](https://en.paperblog.com/loveism-a-philosophy-of-love-96570/)
+- Galambosianism
+- [Fredaism](https://en.wikipedia.org/wiki/Franco_Freda)
+- [Obshchinaism](https://en.wikipedia.org/wiki/Obshchina)
+- [Agarism](https://en.wikipedia.org/wiki/Agar "competitiveness among agar bacteria")
+- Bleeding Heart Authoritarianism
+- Fascist Impossibilism
+- Sand Capitalism
+- Gourmetism
+- [Queer English Socialism](https://polcompballanarchy.miraheze.org/wiki/Ingqueer "yet another totally hilarious and not at all dry anti sjw joke")
+- Esoteric Harrisism
+- [Bio Socialism](https://www.sciencedirect.com/science/article/abs/pii/S0016718517300234)
+- [Anarcho Judaism](https://www.amazon.com/masters-but-God-anarcho-Judaism-Contemporary/dp/1526149036)
+- [George Sandism](https://en.wiktionary.org/wiki/George_Sandism)
+## PCP Abuser Tier
+- [Hook Operandism](https://obscurban-legend.fandom.com/wiki/Operators)
+- [Neo Babouvism](https://en.wikipedia.org/wiki/Neo-Babouvism)
+- [Scouse Syndicalism](https://polcompballanarchy.miraheze.org/wiki/Scouse_Syndicalism)
+- Communo Systemalism
+- Systemalism
+- Phomvihaneism
+- [Forceful Libertarianism](https://polcompballanarchy.miraheze.org/wiki/Ingbert "Ingbert")
+- [Burrism](https://en.wikipedia.org/wiki/Burr_conspiracy)
+- Sock Democracy
+- Cult Egoism
+- Zalgoism
+- Bikchurinism
+- Strawberry Marshmallowism
+- Banana Marshmallowism
+- Raspberry Marshmallowism
+- Blackberry Marshmallowism
+- [Anrcho nazi](https://polcompballanarchy.miraheze.org/wiki/Anrcho_nazi "not a misspelling")
+- Horror Theocracy
+- Horror Technocracy
+- Horsehook Centrism
+- Propanism
+- [Columbinism](https://en.wikipedia.org/wiki/Columbine_High_School_massacre)
+- Transhumanist Hive Mind Collectivism
+- Paleo Luddism
+- [Post Post Post Modernism](https://ifunny.co/picture/HqliGNVj8)
+- Confusianism
+- Anti Economism
+- A/Acc
+- [Kleftism](https://books.google.es/books?id=ABZHfUWxuvQC&pg=PA36&lpg=PA36&dq=kleftism&source=bl&ots=XSRFrDGDBN&sig=ACfU3U2FRdkRxw35GCyMa_akQscn7RViuA&hl=en&sa=X&ved=2ahUKEwjf5_rlnOT2AhV8_7sIHa_sB_QQ6AF6BAgZEAM#v=onepage&q=kleftism&f=false)
+- Cute Communalism
+- Neo Selfism
+- Azathothism
+- Erdosism
+- Leo Felton Thought
+- Vikiism
+- Grogynism
+- Theoretical Socialism
+- Cryo Communism
+- Anarcho Darwinism
+- Popperism
+- Somnism
+- Tourism
+## Researching These Will Result In A Triple Shotgun Blast Suicide
+- Authoritarian CryptoCap
+- State Centrism
+- [REDACTED]manism
+- [Khalifaism](https://www.reddit.com/r/newwackyideologies/comments/m1ekc9/khalifism_based_on_an_idea_my_brother_had/)
+- National Menshevism
+- [Marxism Leninism Maoism Monteirism](https://monteiristparty.wordpress.com/2021/02/20/marxism-leninism-maoism-monteirism/amp/)
+- Manatee Supremocracy
+- Averism
+- Dark Divinialism
+- Morisienism
+- Nihilistic Gopnism
+- Narco Capitalism
+- Bsaheedism
+- National Divinialism
+- Paleo Reactionarism
+- Zermatism
+- Vanguard Soulism
+- Urânjizism
+- [Hughesism](https://teenfic.net/stories/the-doctrine-of-hughesism-a-brief-guide-to-hughesist-ideology-176940181/ "American Communism")
+- [Żulism](https://besty.pl/3196549)
+- Momentism
+- Horror Socialist Conservatism
+- Negentropic Centrism
+- [Coconut Man Model](https://www.youtube.com/watch?v=03GYzR0LyQM)
+- Ǧationalism
+- Political Breatharianism
+- Cpt Kirkism
+- Freezeism
+- Ego Micronationalism
+- Roofnrzrgrism
+- Heaven's Gate Model
+- Hyper Demarchy
+- Nguemaism
+- Carmichaelism
+- Samism
+- Motherism
+- Communalllism
+- Anarcho Grillism
+- [Acontacism](https://www.reddit.com/r/newwackyideologies/comments/m46dhq/acontactism_offcompass_enviromentalism/)
+- Thanatosianism
+- Fully Cooked Marinated Charcoal Space Centrism
+- [McLuhanism](https://mcluhangalaxy.wordpress.com/2016/04/19/man-becomes-the-sex-organs-of-the-machine-world/ "embracing that one mcluhan quote as a valid political system")
+- GANGism
+- [Discordianism](https://en.wikipedia.org/wiki/Discordianism "Erisianism")
+- Bolsolulopetism
+## If You Are Reading This It's Too Late
+- Paperclipism
+- Qxirism
+- Neo Anarchy
+- Archeo Primitvism
+- Gallomarchy
+- Meso Luddism
+- [Muspelheim Model](https://en.wikipedia.org/wiki/Muspelheim)
+- Paleo Duginism
+- Euskadi Carlism
+- Ism
+- The C.O.N.S.P.I.R.A.C.Y Thought
+- Uber Toryism
+- Trinitism
+- Regressive Absurdism
+- Egoist Dramaticism
+- Santa Combatocracy
+- [♩♪♫♪♬♬♮♬♬♭♪♪](https://polcompballanarchy.miraheze.org/wiki/%E2%99%A9%E2%99%AA%E2%99%AB%E2%99%AA%E2%99%AC%E2%99%AC%E2%99%AE%E2%99%AC%E2%99%AC%E2%99%AD%E2%99%AA%E2%99%AA)
+- Typhonism
+- Anarcho Katastrophe
+- Dark Mutualism
+- Chaos Elemental Thought
+- Ram Ranch Model
+- Ideological Theocracy
+- Leviathanism
+- Atomic Primitivism
+- Supreme Occamism
+- Mobius Strip Centrism
+- Quarkism
+- [Dark Brandon Thought](https://www.vox.com/culture/23300286/biden-dark-brandon-meme-maga-why-confusing-explained)
+- Yinism
+- [Anti Cosmic Satanism](https://vkjehannum.wordpress.com/tag/anti-cosmic-satanism/)
+- Transhoppeanism
+## Enlightenment, Or Lobotomy
+- Paleo Liberalism
+- Seelism
+- Yum!ism
+- Neolithicism
+- Geologism
+- Inter Theocratic Isocracy
+- Monkey Uprisingism
+- Scream/Acc
+- N/Acc
+- [Ficinoism](https://blogs.scientificamerican.com/guest-blog/blood-lust-the-early-history-of-transfusion/)
+- Overbism
+- Horusism
+- Pickenism
+- [Krambcopoveism](https://polcompballanarchy.miraheze.org/wiki/Krambcopoveism "normie detector")
+- [Hessism](http://hessism.blogspot.com/)
+- Chameleonism
+- Trenchism
+- Tradism
+- Void Existentialism
+- Destructive Chaosism
+- Anarcho Methism
+- [Sitchinism](https://en.wikipedia.org/wiki/Zecharia_Sitchin)
+- A.E.S.D.P.F.
+- ץፚጀፈᏇᄂ - NEO
+- Ω Thought
+- Sch/Acc
+- Monoegoism
+## Death In T-5 Seconds
+- [Bakeacakeism](https://www.sciencedirect.com/science/article/pii/S2352550918303087 "Opposite of Marhaenism")
+- [Paradiso Model](https://en.wikipedia.org/wiki/Paradiso_\(Dante\))
+- [Doubleplus/un/goodism](https://www.youtube.com/watch?v=yGsHq-mZI8U)
+- [Asclepius Globalism](https://foreignpolicy.com/2020/05/27/who-health-china-coronavirus-tedros/)
+- Recherche Fascism
+- Alefascism
+- Plottocracy
+- Amicaadhism
+- Eliroism
+- [SCP-579](https://scp-wiki.wikidot.com/scp-579 "The Final Puller of the Strings")
+- [Amphoterism](https://en.wikipedia.org/wiki/Amphoterism "The Ultimate Ideology of Compatibility")
+- [The Fifth Power](https://en.wikipedia.org/wiki/Fifth_power_\(politics\) "The True Rules of Politics")
+- Canary Anti Authoritarianism
+- Planetocracy
+- Patternulism
+- Linguistically Correct Transhumanism
+- Potential Malenkovism
+- [Finalitarian Modernism](https://en.wikipedia.org/wiki/Philosophy_of_suicide)

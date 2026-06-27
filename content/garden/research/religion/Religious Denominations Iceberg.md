@@ -1,0 +1,271 @@
+# Denominations of Christianity Iceberg
+- [Catholicism](https://en.wikipedia.org/wiki/Catholicism)
+- [Eastern Orthodox](https://en.wikipedia.org/wiki/Eastern%20Orthodox)
+- [Protestantism](https://en.wikipedia.org/wiki/Protestantism)
+- [AnglicanismPro](https://en.wikipedia.org/wiki/Anglicanism)
+- [Calvinism/ReformedPro](https://en.wikipedia.org/wiki/Calvinism)
+- [LutheranismPro](https://en.wikipedia.org/wiki/Lutheranism)
+- [Church of EnglandPro](https://en.wikipedia.org/wiki/Church%20of%20England)
+- [Ecumenical Patriarchate of ConstantinopleEast](https://en.wikipedia.org/wiki/Ecumenical%20Patriarchate%20of%20Constantinople)
+- [Russian Orthodox ChurchEast](https://en.wikipedia.org/wiki/Russian%20Orthodox%20Church)
+- [The Catholic Church](https://en.wikipedia.org/wiki/The%20Catholic%20Church)
+- [Sola FidePro](https://en.wikipedia.org/wiki/Sola%20Fide)
+- [Sola ScripturaPro](https://en.wikipedia.org/wiki/Sola%20Scriptura)
+- [Henry VIII](https://en.wikipedia.org/wiki/Henry%20VIII)
+- [John Calvin](https://en.wikipedia.org/wiki/John%20Calvin)
+- [Martin Luther](https://en.wikipedia.org/wiki/Martin%20Luther)
+- [Pope Francis](https://en.wikipedia.org/wiki/Pope%20Francis)
+- [St. Peter](https://en.wikipedia.org/wiki/St.%20Peter)
+- [Great Schism of 1054](https://en.wikipedia.org/wiki/Great%20Schism%20of%201054)
+- [Protestant Reformation](https://en.wikipedia.org/wiki/Protestant%20Reformation)
+
+  
+
+- [Episcopal Church Governance](https://en.wikipedia.org/wiki/Episcopal%20Church%20Governance)
+- [Mainline Protestant Churches](https://en.wikipedia.org/wiki/Mainline%20Protestant%20Churches)
+- [Presbyter Church GovernancePro](https://en.wikipedia.org/wiki/Presbyter%20Church%20Governance)
+- [Baptist ChristianityPro](https://en.wikipedia.org/wiki/Baptist%20Christianity)
+- [Church of Jesus Christ of Latter-day Saints/MormonsPro X](https://en.wikipedia.org/wiki/Church%20of%20Jesus%20Christ%20of%20Latter-day%20Saints/Mormons)
+- [EvangelicalismPro](https://en.wikipedia.org/wiki/Evangelicalism)
+- [Jehovah’s WitnessesPro X](https://en.wikipedia.org/wiki/Jehovah%E2%80%99s%20Witnesses)
+- [MethodismPro](https://en.wikipedia.org/wiki/Methodism)
+- [PresbyterianismPro](https://en.wikipedia.org/wiki/Presbyterianism)
+- [Anglican Church in N. AmericaPro](https://en.wikipedia.org/wiki/Anglican%20Church%20in%20N.%20America)
+- [Church of GreeceEast](https://en.wikipedia.org/wiki/Church%20of%20Greece)
+- [Episcopal Church (USA)Pro](https://en.wikipedia.org/wiki/Episcopal%20Church%20\(USA\))
+- [Protestant Church in GermanyPro](https://en.wikipedia.org/wiki/Protestant%20Church%20in%20Germany)
+- [United Methodist ChurchPro](https://en.wikipedia.org/wiki/United%20Methodist%20Church)
+- [Adult/Believer Baptism](https://en.wikipedia.org/wiki/Adult/Believer%20Baptism)
+- [ConsubstantiationPro](https://en.wikipedia.org/wiki/Consubstantiation)
+- [Five Point CalvinismPro](https://en.wikipedia.org/wiki/Five%20Point%20Calvinism)
+- [Five solaePro](https://en.wikipedia.org/wiki/Five%20solae)
+- [PredestinationPro](https://en.wikipedia.org/wiki/Predestination)
+- [Purgatory](https://en.wikipedia.org/wiki/Purgatory)
+- [TransubstantiationChi](https://en.wikipedia.org/wiki/Transubstantiation)
+- [Huldrych Zwingli](https://en.wikipedia.org/wiki/Huldrych%20Zwingli)
+- [John Knox](https://en.wikipedia.org/wiki/John%20Knox)
+- [John Wesley](https://en.wikipedia.org/wiki/John%20Wesley)
+- [Oliver Cromwell](https://en.wikipedia.org/wiki/Oliver%20Cromwell)
+- [Thomas Cranmer](https://en.wikipedia.org/wiki/Thomas%20Cranmer)
+- [English Reformation](https://en.wikipedia.org/wiki/English%20Reformation)
+- [First Great Awakening](https://en.wikipedia.org/wiki/First%20Great%20Awakening)
+- [Scottish Reformation](https://en.wikipedia.org/wiki/Scottish%20Reformation)
+- [Second Great Awakening](https://en.wikipedia.org/wiki/Second%20Great%20Awakening)
+
+  
+
+- [Congregation Church GovernancePro](https://en.wikipedia.org/wiki/Congregation%20Church%20Governance)
+- [AmishPro](https://en.wikipedia.org/wiki/Amish)
+- [Anglo-Catholic](https://en.wikipedia.org/wiki/Anglo-Catholic)
+- [Anglo-ReformedPro](https://en.wikipedia.org/wiki/Anglo-Reformed)
+- [Calvinist-LutheranismPro](https://en.wikipedia.org/wiki/Calvinist-Lutheranism)
+- [CongregationalismPro](https://en.wikipedia.org/wiki/Congregationalism)
+- [Dutch ReformedPro](https://en.wikipedia.org/wiki/Dutch%20Reformed)
+- [HuguenotPro](https://en.wikipedia.org/wiki/Huguenot)
+- [Nondenominational ChristianityPro](https://en.wikipedia.org/wiki/Nondenominational%20Christianity)
+- [PietismPro](https://en.wikipedia.org/wiki/Pietism)
+- [PuritanismPro](https://en.wikipedia.org/wiki/Puritanism)
+- [QuakersPro](https://en.wikipedia.org/wiki/Quakers)
+- [Restoration MovementPro](https://en.wikipedia.org/wiki/Restoration%20Movement)
+- [Anglican Church of CanadaPro](https://en.wikipedia.org/wiki/Anglican%20Church%20of%20Canada)
+- [Church of DenmarkPro](https://en.wikipedia.org/wiki/Church%20of%20Denmark)
+- [Church of IrelandPro](https://en.wikipedia.org/wiki/Church%20of%20Ireland)
+- [Church of NorwayPro](https://en.wikipedia.org/wiki/Church%20of%20Norway)
+- [Church of ScotlandPro](https://en.wikipedia.org/wiki/Church%20of%20Scotland)
+- [Church of SwedenPro](https://en.wikipedia.org/wiki/Church%20of%20Sweden)
+- [Evangelical Free Church of AmericaPro](https://en.wikipedia.org/wiki/Evangelical%20Free%20Church%20of%20America)
+- [Pentecostal Missionary Church of Christ (4th Watch)Pro](https://en.m.wikipedia.org/wiki/Pentecostal_Missionary_Church_of_Christ_\(4th_Watch\))
+- [Presbyterian Church (USA)Pro](https://en.wikipedia.org/wiki/Presbyterian%20Church%20\(USA\))
+- [Presbyterian Church in AmericaPro](https://en.wikipedia.org/wiki/Presbyterian%20Church%20in%20America)
+- [Protestant Church in the NetherlandsPro](https://en.wikipedia.org/wiki/Protestant%20Church%20in%20the%20Netherlands)
+- [Protestant Church of SwitzerlandPro](https://en.wikipedia.org/wiki/Protestant%20Church%20of%20Switzerland)
+- [United Church of ChristPro](https://en.wikipedia.org/wiki/United%20Church%20of%20Christ)
+- [United Protestant Church of FrancePro](https://en.wikipedia.org/wiki/United%20Protestant%20Church%20of%20France)
+- [Westboro Baptist ChurchPro](https://en.wikipedia.org/wiki/Westboro%20Baptist%20Church)
+- [St. Bartholomew's Day massacre](https://en.wikipedia.org/wiki/St.%20Bartholomew's%20Day%20massacre)
+
+  
+
+- [Theological Conservatism](https://en.wikipedia.org/wiki/Theological%20Conservatism)
+- [Theological Liberalism](https://en.wikipedia.org/wiki/Theological%20Liberalism)
+- [Oriental Orthodox](https://en.wikipedia.org/wiki/Oriental%20Orthodox)
+- [AdventismPro](https://en.wikipedia.org/wiki/Adventism)
+- [AnabaptistsPro](https://en.wikipedia.org/wiki/Anabaptists)
+- [Byzantine ChristianityEast](https://en.wikipedia.org/wiki/Byzantine%20Christianity)
+- [Eastern Catholic Church](https://en.wikipedia.org/wiki/Eastern_Catholic_Churches)
+- [Holiness movementPro](https://en.wikipedia.org/wiki/Holiness%20movement)
+- [HutteritesPro](https://en.wikipedia.org/wiki/Hutterites)
+- [MennonitesPro](https://en.wikipedia.org/wiki/Mennonites)
+- [PentecostalismPro](https://en.wikipedia.org/wiki/Pentecostalism)
+- [Plymouth BrethrenPro](https://en.wikipedia.org/wiki/Plymouth%20Brethren)
+- [WaldensiansPro](https://en.wikipedia.org/wiki/Waldensians)
+- [Armenian Apostolic ChurchOrient](https://en.wikipedia.org/wiki/Armenian%20Apostolic%20Church)
+- [Church of the BrethrenPro](https://en.wikipedia.org/wiki/Church%20of%20the%20Brethren)
+- [Coptic Orthodox ChurchOrient](https://en.wikipedia.org/wiki/Coptic%20Orthodox%20Church)
+- [Ethiopian Orthodox Tewahedo Church Orient](https://en.wikipedia.org/wiki/Ethiopian%20Orthodox%20Tewahado%20Church)
+- [Moravian ChurchPro](https://en.wikipedia.org/wiki/Moravian%20Church)
+- [Polish Orthodox ChurchEast](https://en.wikipedia.org/wiki/Polish%20Orthodox%20Church)
+- [Reformed Church in HungryPro](https://en.wikipedia.org/wiki/Reformed%20Church%20in%20Hungry)
+- [Scottish Episcopal ChurchPro](https://en.wikipedia.org/wiki/Scottish%20Episcopal%20Church)
+- [Syriac Orthodox ChurchOrient](https://en.wikipedia.org/wiki/Syriac%20Orthodox%20Church)
+- [MiaphysitismOrient](https://en.wikipedia.org/wiki/Miaphysitism)
+- [George Fox](https://en.wikipedia.org/wiki/George%20Fox)
+- [Jakob Amman](https://en.wikipedia.org/wiki/Jakob%20Amman)
+- [Jakob Hutter](https://en.wikipedia.org/wiki/Jakob%20Hutter)
+- [Jan Hus](https://en.wikipedia.org/wiki/Jan%20Hus)
+- [Menno Simons](https://en.wikipedia.org/wiki/Menno%20Simons)
+- [Peter Waldo](https://en.wikipedia.org/wiki/Peter%20Waldo)
+- [First Council of Nicaea](https://en.wikipedia.org/wiki/First%20Council%20of%20Nicaea)
+- [Radical Reformation](https://en.wikipedia.org/wiki/Radical%20Reformation)
+
+  
+
+- [ArminianismPro](https://en.wikipedia.org/wiki/Arminianism)
+- [BruderhofPro](https://en.wikipedia.org/wiki/Bruderhof)
+- [LollardsPro](https://en.wikipedia.org/wiki/Lollards)
+- [Unitarianism](https://en.wikipedia.org/wiki/Unitarianism)
+- [ZwinglianismPro](https://en.wikipedia.org/wiki/Zwinglianism)
+- [Armenian Catholic ChurchChi](https://en.wikipedia.org/wiki/Armenian%20Catholic%20Church)
+- [Assyrian Church of the East](https://en.wikipedia.org/wiki/Assyrian%20Church%20of%20the%20East)
+- [Coptic Catholic ChurchChi](https://en.wikipedia.org/wiki/Coptic%20Catholic%20Church)
+- [Ethiopian Catholic ChurchChi](https://en.wikipedia.org/wiki/Ethiopian%20Catholic%20Church)
+- [Greek Byzantine Catholic ChurchChi](https://en.wikipedia.org/wiki/Greek%20Byzantine%20Catholic%20Church)
+- [Indian Orthodox ChurchOrient](https://en.wikipedia.org/wiki/Indian%20Orthodox%20Church)
+- [Orthodox Church in AmericaEast](https://en.wikipedia.org/wiki/Orthodox%20Church%20in%20America)
+- [Orthodox Church of FinlandEast](https://en.wikipedia.org/wiki/Orthodox%20Church%20of%20Finland)
+- [Russian Greek Catholic ChurchChi](https://en.wikipedia.org/wiki/Russian%20Greek%20Catholic%20Church)
+- [Nestorianism](https://en.wikipedia.org/wiki/Nestorianism)
+- [John Wycliffe](https://en.wikipedia.org/wiki/John%20Wycliffe)
+
+  
+
+- [DiggersPro](https://en.wikipedia.org/wiki/Diggers)
+- [Catholic Apostolic ChurchPro](https://en.wikipedia.org/wiki/Catholic%20Apostolic%20Church)
+- [Orthodox Church in JapanEast](https://en.wikipedia.org/wiki/Orthodox%20Church%20in%20Japan)
+- [Syriac Catholic ChurchChi](https://en.wikipedia.org/wiki/Syriac%20Catholic%20Church)
+- [Syro-Malabar Catholic ChurchChi](https://en.wikipedia.org/wiki/Syro-Malabar%20Catholic%20Church)
+
+  
+
+- [EnthusiastsPro](https://en.wikipedia.org/wiki/Enthusiasts)
+- [MuggletoniansPro](https://en.wikipedia.org/wiki/Muggletonians)
+- [RantersPro](https://en.wikipedia.org/wiki/Ranters)
+- [SeekersPro](https://en.wikipedia.org/wiki/Seekers)
+
+  
+
+- [WhitefieldismPro](https://en.wikipedia.org/wiki/Whitefieldism)
+
+---
+“Religions” that make fun of real world Religions
+
+Christianity Judaism Islam Buddhism Hinduism Other World Religion Misc
+
+Heretical XCult C
+
+  
+
+- [Eastern Orthodox](https://en.wikipedia.org/wiki/Eastern%20Orthodox "Comprising various national churches such as the Greek Orthodox, Russian Orthodox, and more, it places a strong emphasis on liturgy, tradition, and the authority of the Patriarchs. It has a unique hierarchical structure and theology")
+- [Islamic State of Iraq and LevantC](https://en.wikipedia.org/wiki/Islamic%20State%20of%20Iraq%20and%20Levant "The Islamic State of Iraq and the Levant (ISIL), often referred to as ISIS (Islamic State of Iraq and Syria), is a radical militant group that emerged in the early 2000s. It aims to establish a self-proclaimed caliphate governed by a strict interpretation of Islamic law, known as Sharia, and seeks to unite Muslims worldwide under its leadership. The group gained significant global attention due to its violent tactics, territorial expansion, and the high-profile acts of terrorism it carried out")
+- [Klu Klux KlanX C](https://en.wikipedia.org/wiki/Klu%20Klux%20Klan "The Ku Klux Klan (KKK) is a historically significant and highly controversial American white supremacist organization that has gone through several iterations since its inception in the aftermath of the Civil War. Founded in 1865, shortly after the end of the American Civil War, the KKK emerged in the Southern United States with the primary goal of maintaining white supremacy")
+- [Lutheranism](https://en.wikipedia.org/wiki/Lutheranism "Lutheranism originated with the teachings of Martin Luther, a German monk and theologian. Luther emphasized the doctrine of justification by faith alone (sola fide) and the authority of Scripture alone (sola scriptura). Lutherans hold to the sacraments of baptism and the Eucharist (also called the Lord's Supper), and their worship is often characterized by liturgical traditions")
+- [Orthodox Judaism](https://en.wikipedia.org/wiki/Orthodox%20Judaism "This traditional branch emphasizes strict adherence to Jewish law (Halakhah) and follows traditional interpretations of the Torah. It has several subgroups, including Modern Orthodox, Ultra-Orthodox (Haredi), and Hasidic Judaism")
+- [Protestantism](https://en.wikipedia.org/wiki/Protestantism "A diverse movement that originated in the 16th century as a response to perceived corruption and excesses within the Roman Catholic Church")
+- [Roman Catholicism](https://en.wikipedia.org/wiki/Roman%20Catholicism "The largest Christian denomination, centered around the authority of the Pope in Rome. It places a strong emphasis on sacraments, tradition, and the authority of the Magisterium")
+- [Russian Orthodox](https://en.wikipedia.org/wiki/Russian%20Orthodox "Russian Orthodox Christianity, often simply referred to as Russian Orthodoxy, is a branch of Eastern Orthodox Christianity that is closely associated with the historical and cultural development of Russia. It is one of the largest Christian denominations in Russia and holds a significant place in the country's religious, social, and cultural landscape")
+- [Shia Islam](https://en.wikipedia.org/wiki/Shia%20Islam "Shia Islam, also known simply as Shia, is one of the two main branches of Islam, the other being Sunni Islam. It represents a distinct theological and jurisprudential interpretation of the faith, with differences primarily centered around the question of leadership and succession after the death of the Prophet Muhammad")
+- [Sunni Islam](https://en.wikipedia.org/wiki/Sunni%20Islam "Sunni Islam is one of the two main branches of Islam, the other being Shia Islam. It represents the largest sect within the Islamic faith, comprising the majority of Muslims worldwide. The division between Sunni and Shia Islam originated over a disagreement about the rightful succession of leadership after the death of the Prophet Muhammad in the 7th century")
+- [Zen Buddhism](https://en.wikipedia.org/wiki/Zen%20Buddhism "Zen Buddhism, often referred to simply as Zen, is a school of Mahayana Buddhism that originated in China during the Tang dynasty and later spread to Japan and other parts of the world. Zen emphasizes direct experience and personal realization of enlightenment, focusing on meditation and mindfulness practices as a means to achieve this realization")
+
+  
+
+- [Anglicanism](https://en.wikipedia.org/wiki/Anglicanism "Anglicanism emerged in England during the 16th century as a result of the English Reformation, which was triggered by King Henry VIII's desire to annul his marriage. Anglicans retain some Catholic traditions and liturgical practices while also incorporating Protestant theology")
+- [Baptism](https://en.wikipedia.org/wiki/Baptists "Baptist denomination is a branch of Christianity that encompasses a diverse group of Protestant congregations sharing certain theological and historical characteristics. Baptists are known for their emphasis on personal faith, religious freedom, congregational autonomy, and believer's baptism by full immersion")
+- [Calvinism](https://en.wikipedia.org/wiki/Calvinism "Calvinism is a branch of Protestant Christianity that follows the theological teachings of John Calvin (1509–1564), a French theologian and reformer. It is a comprehensive theological system that outlines specific beliefs about God, salvation, human nature, and the role of the church")
+- [Conservative Judaism](https://en.wikipedia.org/wiki/Conservative%20Judaism "Conservative Judaism is a branch of Judaism that seeks to strike a balance between traditional Jewish practices and beliefs and the modern world. It emerged in the late 19th and early 20th centuries as a response to the challenges posed by the Enlightenment, modernity, and the changing dynamics of Jewish life")
+- [Greek Orthodox](https://en.wikipedia.org/wiki/Greek%20Orthodox "Greek Orthodoxy, also known as Eastern Orthodox Christianity or simply Orthodox Christianity, is a branch of Christianity that has its roots in the early Christian church of the Eastern Roman Empire, which later became known as the Byzantine Empire. It is one of the oldest and most significant branches of Christianity, alongside Roman Catholicism and Protestantism")
+- [Hasidic Judaism](https://en.wikipedia.org/wiki/Hasidic%20Judaism "Hasidic Judaism is a branch of Orthodox Judaism that emerged in the 18th century in Eastern Europe, particularly in the areas that are now part of Poland, Ukraine, and Belarus. It was founded by Rabbi Israel ben Eliezer, also known as the Baal Shem Tov, whose teachings emphasized spirituality, mysticism, and a deep connection with God through joyous worship, prayer, and religious observance")
+- [Jainism](https://en.wikipedia.org/wiki/Jainism "Jainism is an ancient Indian religion that emphasizes non-violence (ahimsa), truth (satya), non-possessiveness (aparigraha), and self-discipline as its core principles. It was founded in the 6th century BCE by Mahavira, a contemporary of Siddhartha Gautama, who is better known as the Buddha. Jainism shares some philosophical and ethical concepts with Buddhism and Hinduism, but it has distinct beliefs and practices that set it apart")
+- [Jehovah's WitnessesX](https://en.wikipedia.org/wiki/Jehovah's%20Witnesses "Jehovah's Witnesses is a Christian denomination known for its distinctive beliefs and practices. The group was founded in the United States in the late 19th century, and it has since grown into a worldwide religious organization")
+- [Methodism](https://en.wikipedia.org/wiki/Methodism "Methodism originated as a revival movement within the Anglican Church, led by John Wesley and his brother Charles Wesley. Methodists emphasize personal piety, social justice, and the importance of a personal relationship with Christ")
+- [MormonismX](https://en.wikipedia.org/wiki/Mormonism "Mormonism, also known as the Latter-day Saint movement, is a religious tradition that originated in the early 19th century in the United States. It is based on the teachings of Joseph Smith Jr., who claimed to have received revelations from God and founded the Church of Christ in 1830, which later became known as The Church of Jesus Christ of Latter-day Saints (LDS Church)")
+- [Oriental Orthodox](https://en.wikipedia.org/wiki/Oriental%20Orthodox "Oriental Orthodox Christianity, also known as the Oriental Orthodox Church or Non-Chalcedonian Church, is a branch of Christianity that emerged in the early centuries of the Christian church")
+- [Presbyterianism](https://en.wikipedia.org/wiki/Presbyterianism "Presbyterianism is a branch of Protestant Christianity characterized by its distinctive system of church governance and theological beliefs. It takes its name from the term \"presbyter,\" which refers to an elder or leader within the church")
+- [Reformed Judaism](https://en.wikipedia.org/wiki/Reformed%20Judaism "Reform Judaism, also known as Reform Judaism, is one of the major branches of modern Judaism. It emerged in the early 19th century in response to the changing social and cultural landscape of Europe, particularly in Germany")
+- [Sikhism](https://en.wikipedia.org/wiki/Sikhism "Sikhism is a monotheistic religion that originated in the Punjab region of South Asia in the late 15th century. It was founded by Guru Nanak Dev Ji and developed further by a line of ten successive Gurus (spiritual teachers), with Guru Gobind Singh Ji being the last of these Gurus. Sikhism emphasizes devotion to one God, equality among all people, and a code of conduct aimed at leading a moral and just life")
+- [Taoism](https://en.wikipedia.org/wiki/Taoism "Taoism, also known as Daoism, is a philosophical, spiritual, and religious tradition that originated in ancient China. It is based on the teachings of the Tao Te Ching, a foundational text attributed to the legendary sage Laozi (or Lao Tzu). Taoism is characterized by its emphasis on living in harmony with the Tao, which can be translated as the \"Way\" or the \"Path.\"")
+- [VoodooX](https://en.wikipedia.org/wiki/Voodoo "Voodoo, also spelled as \"Vodou\" or \"Vodun,\" is a complex and syncretic religion that originated in West Africa and developed further in the Caribbean and parts of the Americas, particularly in Haiti and Louisiana. It is a blend of various African religious beliefs and practices that were brought to the Americas by enslaved Africans and mixed with elements of Christianity, indigenous traditions, and European occultism")
+
+  
+
+- [Agnosticism](https://en.wikipedia.org/wiki/Agnosticism "Agnosticism is a philosophical standpoint that emphasizes uncertainty or lack of knowledge about the existence of deities or ultimate truths. Agnostics typically hold the view that the existence of God or gods, or the nature of ultimate reality, is inherently unknowable or beyond human comprehension. As such, agnostics neither assert nor deny the existence of a higher power or spiritual entities")
+- [Anabaptism](https://en.wikipedia.org/wiki/Anabaptism "Anabaptism is a Christian movement that emerged during the 16th century as a radical branch of the Protestant Reformation. The term \"Anabaptism\" comes from the Greek words \"ana,\" meaning \"again,\" and \"baptizo,\" meaning \"to baptize.\" Anabaptists believed in the practice of adult baptism, which meant that they advocated for the baptism of individuals who had reached an age of personal faith and understanding, as opposed to infant baptism practiced in many other Christian traditions")
+- [Baháʼí Faith](https://en.wikipedia.org/wiki/Bah%C3%A1%CA%BC%C3%AD%20Faith "The Baháʼí Faith is a monotheistic religion that originated in the mid-19th century in Persia (modern-day Iran). It was founded by Baháʼu'lláh (1817–1892), a spiritual teacher and prophet who claimed to be the latest in a line of Messengers of God that includes figures like Abraham, Moses, Buddha, Jesus, and Muhammad")
+- [FreemasonryX C](https://en.wikipedia.org/wiki/Freemasonry "Freemasonry is a fraternal organization that traces its origins back to the medieval stonemason guilds and has evolved into a modern-day social and philosophical society. It is known for its symbolism, rituals, and secretive nature, which has contributed to a sense of intrigue and curiosity surrounding it")
+- [Heaven’s GateX C](https://en.wikipedia.org/wiki/Heaven%E2%80%99s%20Gate "Heaven's Gate was a religious cult founded in the 1970s by Marshall Applewhite and Bonnie Nettles. The cult believed in a mixture of Christian beliefs, science fiction, and ideas related to UFOs and extraterrestrial life. They taught that Earth was about to be \"recycled\" and that a spaceship hidden behind the Hale-Bopp comet would transport their souls to a higher plane of existence")
+- [Hellenism](https://en.wikipedia.org/wiki/Hellenism "Hellenism, also known as Hellenic Paganism or Hellenic Polytheism, is a contemporary revival of the ancient Greek religion that was practiced in ancient Greece and surrounding regions. It is a polytheistic belief system centered around the worship of the gods and goddesses of the ancient Greek pantheon, along with the reverence of various spirits and entities associated with nature, the cosmos, and the human experience")
+- [HoodooX](https://en.wikipedia.org/wiki/Hoodoo "Hoodoo, also known as conjure or rootwork, is a traditional African American folk magic and spiritual practice that has its origins in the Southern United States. It is a blend of various cultural and spiritual influences, including African, Indigenous, European, and Native American traditions")
+- [Kemetism](https://en.wikipedia.org/wiki/Kemetism "Kemetism, also known as Kemetic Reconstructionism or Egyptian Neopaganism, is a modern religious and spiritual movement that seeks to reconstruct and revive the ancient religious beliefs and practices of ancient Egypt, often referred to as Kemet in the Egyptian language. The term \"Kemetism\" is derived from \"Kemet,\" which means \"black land\" and was a reference to the fertile black soil along the Nile River")
+- [Nation of IslamC](https://en.wikipedia.org/wiki/Nation%20of%20Islam "The Nation of Islam (NOI) is a religious and social movement that originated in the United States in the early 20th century. It is often referred to as a black nationalist and separatist movement. The Nation of Islam's ideology combines elements of Islam with a focus on black empowerment, self-reliance, and the upliftment of African Americans")
+- [Nondenominational](https://en.wikipedia.org/wiki/Nondenominational "Nondenominational is a religious or spiritual stance that is not affiliated with or restricted to any specific religious denomination or tradition. In the context of Christianity, for example, a nondenominational church is one that does not align itself with any particular branch or denomination of Christianity, such as Catholicism, Protestantism, or Orthodox Christianity")
+- [Pentecostalism](https://en.wikipedia.org/wiki/Pentecostalism "Pentecostalism is a branch of Christianity that emphasizes a personal and direct experience of the Holy Spirit, often including speaking in tongues (glossolalia), miraculous healings, and other supernatural manifestations. It is named after the biblical event of Pentecost, described in the New Testament book of Acts, where the apostles and early followers of Jesus received the Holy Spirit and began to speak in various languages")
+- [Peoples TempleX C](https://en.wikipedia.org/wiki/Peoples%20Temple "The Peoples Temple was a religious organization founded by Jim Jones in the 1950s. Initially based in Indianapolis, Indiana, the group later moved to California. While it began as a Christian-oriented church, it evolved into a highly controlling and authoritarian group with cult-like characteristics")
+- [Puritanism](https://en.wikipedia.org/wiki/Puritanism "Puritanism is a religious and cultural movement that emerged in the late 16th century as a response to the perceived corruption and ritualism within the Church of England during the Protestant Reformation. The movement gained prominence during the 17th century, particularly in England and its American colonies. Puritans sought to \"purify\" the Church of England from what they saw as remnants of Catholic practices and doctrines")
+- [QAnonC](https://en.wikipedia.org/wiki/QAnon "QAnon is a far-right conspiracy theory that emerged in 2017. It originated on internet forums and social media platforms and gained a following among certain segments of the population. The conspiracy theory is centered around a person or group known as \"Q,\" who claims to have insider knowledge of a secret plot against the United States government and its institutions")
+- [Quakers](https://en.wikipedia.org/wiki/Quakers "Quakers, also known as the Religious Society of Friends, is a Christian religious movement that emerged in England during the 17th century. The movement was founded by George Fox in the mid-1600s and emphasized a direct and personal experience of God, rejecting the need for intermediaries such as clergy and rituals")
+- [Rastafarianism](https://en.wikipedia.org/wiki/Rastafarianism "Rastafarianism, often referred to simply as Rastafari, is a religious and cultural movement that originated in Jamaica during the 1930s. It emerged as a response to the socio-political and economic conditions faced by the African-descendant population in Jamaica")
+- [ScientologyC](https://en.wikipedia.org/wiki/Scientology "Scientology is a religious and spiritual movement that was founded in the 1950s by science fiction writer L. Ron Hubbard. It encompasses a belief system and practices that aim to help individuals achieve spiritual enlightenment and self-improvement. The core teachings of Scientology are outlined in various writings and materials authored by Hubbard, most notably in his book \"Dianetics: The Modern Science of Mental Health,\" published in 1950")
+- [Shaivism](https://en.wikipedia.org/wiki/Shaivism "Shaivism is one of the major traditions within Hinduism, focusing on the worship of Lord Shiva as the supreme deity. Shiva is often regarded as the destroyer and transformer within the Hindu trinity, which also includes Brahma (the creator) and Vishnu (the preserver). Shaivism places particular emphasis on Shiva's role as both the creator and destroyer of the universe, embodying the cyclical nature of existence")
+- [Unitarianism](https://en.wikipedia.org/wiki/Unitarianism "Unitarianism is a theological and philosophical movement that emphasizes the unity or oneness of God as opposed to the traditional Christian doctrine of the Trinity, which holds that God is three distinct persons in one being: Father, Son (Jesus Christ), and Holy Spirit. Unitarians reject the idea of Jesus being fully God and instead consider him a human prophet or teacher")
+- [Zionism](https://en.wikipedia.org/wiki/Zionism "Zionism is a political and ideological movement that emerged in the late 19th century with the aim of establishing and maintaining a Jewish homeland in the historic region of Palestine, which is now modern-day Israel and the Palestinian territories. The term \"Zionism\" is derived from \"Zion,\" which refers to Jerusalem and the land of Israel in religious and historical contexts")
+- [Zoroastrianism](https://en.wikipedia.org/wiki/Zoroastrianism "Zoroastrianism, also known as Mazdaism, is one of the world's oldest monotheistic religions, founded by the prophet Zoroaster (or Zarathustra) in ancient Persia (modern-day Iran) around the 6th century BCE. It is believed to have significantly influenced the development of later monotheistic religions such as Judaism, Christianity, and Islam")
+
+  
+
+- [Ahmadiyya](https://en.wikipedia.org/wiki/Ahmadiyya "Ahmadiyya is a religious movement within Islam that originated in the late 19th century in Punjab, India, under the leadership of Mirza Ghulam Ahmad (1835–1908). The movement's followers are known as Ahmadis or Ahmadi Muslims. However, it's important to note that the status of Ahmadiyya within Islam is a subject of controversy, as many mainstream Islamic scholars and authorities do not consider Ahmadis to be Muslims due to theological differences")
+- [Assyrian Church of the East](https://en.wikipedia.org/wiki/Assyrian%20Church%20of%20the%20East "The Assyrian Church of the East is an ancient Christian denomination that traces its roots back to the early Christian Church. It is often referred to as the \"Nestorian Church,\" although this term has been historically considered pejorative and is no longer widely used. The church is one of the oldest Christian traditions and has a unique historical and theological background")
+- [Black Hebrew IsraelitesC](https://en.wikipedia.org/wiki/Black%20Hebrew%20Israelites "The Black Hebrew Israelites is a diverse set of religious groups and movements that generally claim descent from the ancient Israelites and often assert that modern-day people of African descent are the true descendants of the biblical Israelites. These groups have a wide range of beliefs and practices, and they are not a single, unified movement")
+- [Byzantine Christianity](https://en.wikipedia.org/wiki/Byzantine%20Christianity "Byzantine Christianity, also known as Eastern Orthodox Christianity, refers to the branch of Christianity that developed in the Eastern Roman Empire, which later became known as the Byzantine Empire. It encompasses a distinct set of beliefs, practices, and traditions that distinguish it from other Christian denominations, particularly from Western Christianity (Roman Catholicism)")
+- [Church of Ireland](https://en.wikipedia.org/wiki/Church%20of%20Ireland "The Church of Ireland is a Christian denomination that is part of the Anglican Communion. It is the second-largest Christian denomination in Ireland, after the Roman Catholic Church. The Church of Ireland traces its roots back to the early Christian church in Ireland and has historical ties to the Church of England")
+- [Church of Scotland](https://en.wikipedia.org/wiki/Church%20of%20Scotland "The Church of Scotland, also known as the Kirk, is a Christian denomination based in Scotland. It is a Presbyterian church, which means it follows a system of church governance where local congregations are led by elected elders and governed collectively by regional bodies called presbyteries. The highest governing body of the Church of Scotland is the General Assembly, which consists of representatives from congregations, presbyteries, and other church bodies")
+- [Confucianism](https://en.wikipedia.org/wiki/Confucianism "Confucianism is a philosophical and ethical system that originated in ancient China, founded by Confucius (Kong Fuzi or Kongzi) during the Spring and Autumn period (771–476 BCE). It has had a significant influence on Chinese culture, society, and thought for over two millennia")
+- [Coptic Orthodoxy](https://en.wikipedia.org/wiki/Coptic%20Orthodoxy "Coptic Orthodoxy, often simply referred to as the Coptic Church, is one of the oldest Christian traditions in the world. It is a branch of Orthodox Christianity that originated in Egypt and has a distinct cultural and theological identity")
+- [Eastern Catholic Church](https://en.wikipedia.org/wiki/Eastern%20Catholic%20Church "The Eastern Catholic Church, also known as the Eastern Catholic Rites or Eastern Catholic Churches, refers to a group of autonomous Christian Churches that are in full communion with the Pope of Rome while maintaining their distinct Eastern Christian traditions, liturgical practices, and theological perspectives. This distinguishes them from the Western (Latin) Catholic Church, which is more commonly associated with Roman Catholicism")
+- [Ethiopian Orthodox Tewahedo Church](https://en.wikipedia.org/wiki/Ethiopian_Orthodox_Tewahedo_Church "The Ethiopian Orthodox Tewahedo Church, one of the oldest Christian denominations, stands as a spiritual cornerstone in Ethiopia's rich cultural tapestry. With roots extending to the early centuries of Christianity, the church follows a unique blend of faith and tradition. Led by the Patriarch of Alexandria and All Africa, the church's liturgy is conducted in Ge'ez, an ancient Semitic language.")
+- [Falun GongC](https://en.wikipedia.org/wiki/Falun%20Gong "Falun Gong, also known as Falun Dafa, is a spiritual practice that combines meditation, exercises, and moral teachings. It was founded in 1992 by Li Hongzhi, a Chinese teacher, and it gained popularity in China during the 1990s. The practice emphasizes the principles of truthfulness (Zhen), compassion (Shan), and forbearance (Ren) as a guide to living a harmonious and balanced life")
+- [Modern Paganism](https://en.wikipedia.org/wiki/Modern%20Paganism "Modern Paganism, often referred to as contemporary or neopaganism, is a diverse and decentralized movement that encompasses a wide range of spiritual, religious, and philosophical beliefs and practices. It draws inspiration from various historical pagan traditions, folklore, mythology, and nature-based spirituality. Modern Paganism is not a single, unified belief system; rather, it consists of multiple distinct traditions, each with its own unique perspectives and practices")
+- [Moravianism](https://en.wikipedia.org/wiki/Moravianism "Moravianism, also known as the Moravian Church or the Unitas Fratrum (Unity of the Brethren), is a Protestant Christian denomination with its roots in the historical region of Moravia, which is now part of the Czech Republic. The Moravian Church emerged during the 15th century as a result of religious reforms and spiritual renewal movements within the medieval Catholic Church")
+- [Opus Dei](https://en.wikipedia.org/wiki/Opus%20Dei "Opus Dei, formally known as \"Prelature of the Holy Cross and Opus Dei,\" is a Roman Catholic institution that is often referred to as a personal prelature of the Catholic Church. It was founded in Spain in 1928 by Saint Josemaría Escrivá, a Spanish priest, with the aim of promoting spiritual growth and holiness among laypeople and clergy through their daily work and ordinary activities. The Latin phrase \"Opus Dei\" translates to \"Work of God")
+- [Orange ProtestantismX](https://en.wikipedia.org/wiki/Orange%20Protestantism "Orange Protestantism is a political, religious and cultural movement that is closely associated with the Orange Order, a Protestant fraternal organization. The Orange Order originated in Northern Ireland and is composed of members who identify as Protestants, particularly of the Presbyterian, Anglican, and Reformed traditions")
+- [The Church of the SubGeniusC](https://en.wikipedia.org/wiki/The%20Church%20of%20the%20SubGenius "The Church of the SubGenius is a satirical religious organization and parody religion that was founded in the 1950s by Ivan Stang and Philo Drummond. It's known for its humorous and often absurd teachings, as well as its criticism of organized religion, consumer culture, and societal norms")
+
+  
+
+- [Adventism](https://en.wikipedia.org/wiki/Adventism "Adventism refers to a group of Christian denominations that share a focus on the imminent Second Coming (or \"Advent\") of Jesus Christ. This belief is based on a literal interpretation of biblical prophecies, particularly those found in the books of Daniel and Revelation. Adventist theology often emphasizes themes such as the Sabbath, healthy living, and the importance of personal spiritual growth")
+- [Calvinist-Lutheranism](https://en.wikipedia.org/wikiCalvinist-Lutheranism "Calvinist-Lutheranism, often referred to as Reformed Lutheranism, is a theological and ecclesiastical synthesis that combines elements of Calvinism and Lutheranism, two major Protestant traditions that emerged during the 16th-century Reformation.")
+- [Igbo Judaism](https://en.wikipedia.org/wiki/Igbo%20Judaism "Igbo Judaism refers to a religious and cultural movement among the Igbo people of Nigeria who have adopted Jewish customs, beliefs, and practices, often integrating them with their existing Igbo cultural heritage. This movement is sometimes referred to as \"Igbo Hebrew,\" \"Igbo Jewish,\" or \"Igbo-Israelite.\"")
+- [Lev TahorC](https://en.wikipedia.org/wiki/Lev%20Tahor "Lev Tahor (Hebrew: לב טהור) is a religious community that identifies itself as an ultra-Orthodox Jewish group. The name \"Lev Tahor\" translates to \"Pure Heart\" in English. The group gained attention due to its unconventional beliefs, practices, and controversial activities")
+- [Lord’s Resistance ArmyC](https://en.wikipedia.org/wiki/Lord%E2%80%99s%20Resistance%20Army "The Lord's Resistance Army (LRA) is a notorious militant group that originated in Uganda and has been active in parts of Central Africa, primarily Uganda, Sudan, Democratic Republic of Congo (DRC), and Central African Republic (CAR). The group was founded in the late 1980s by Joseph Kony, who claimed to be a spiritual leader and sought to establish a theocratic government based on a blend of Christianity and Acholi tribal beliefs")
+- [Messianic Judaism](https://en.wikipedia.org/wiki/Messianic%20Judaism "Messianic Judaism is a religious movement that combines elements of Judaism and Christianity. It generally involves Jewish individuals who believe in Jesus Christ as the Messiah and Savior while maintaining certain Jewish practices, customs, and traditions. This movement emerged in the late 19th and early 20th centuries, gaining more prominence in the latter half of the 20th century")
+- [PastafarianismC](https://en.wikipedia.org/wiki/Pastafarianism "Pastafarianism, also known as the Church of the Flying Spaghetti Monster, is a satirical and parody religion that was created as a response to discussions about the teaching of intelligent design and creationism in public schools. It was first introduced in 2005 by Bobby Henderson, an American physics graduate, in an open letter to the Kansas State Board of Education")
+- [Rodnovery](https://en.wikipedia.org/wiki/Slavic_Native_Faith "The Slavic Native Faith, also known as Rodnovery, Slavic Neopaganism, or other names, is a contemporary religion movement based on the spirituality and mythology of the Slavic peoples, classified as an ethnic religion and a new religious movement. It has no overarching structure or accepted religious authority and is characterized by considerable diversity in matters of belief and practice, often depending on the country and its culture. It operates in all Slavic countries, no matter if it's Western, Eastern, or Southern Slavic, but also has its diaspora in the Baltic states.")
+- [The Cult of KekC](https://en.wikipedia.org/wiki/The%20Cult%20of%20Kek "The \"Cult of Kek\" is an internet phenomenon that emerged from online communities, particularly on websites like 4chan and Reddit. It originated as a tongue-in-cheek meme but evolved into a complex and sometimes confusing cultural reference. The term \"Kek\" itself is believed to be a variation of \"lol,\" which is used to denote laughter in online conversations")
+- [WaldensiansX](https://en.wikipedia.org/wiki/Waldensians "A Christian group of a church tradition that began as an ascetic movement initiated by Peter Waldo, established in southern France around 1170 as the \"Poor Men of Lyon\", operating in France and Italy, opposing the power and wealth of the Church, preaching apostolic poverty as the way to perfection. Condemned by the papacy, excommunicated and persecuted by the Inquisition.")
+- [Zwinglianism](https://en.wikipedia.org/wiki/Zwinglianism "Zwinglianism, a branch of Protestant Christianity named after Swiss reformer Ulrich Zwingli, emerged during the 16th century as a distinct theological movement within the broader Protestant Reformation. Zwinglianism emphasizes the authority of Scripture and rejects certain traditional Catholic practices, such as the veneration of saints and the real presence of Christ in the Eucharist.")
+
+  
+
+- [Aghori](https://en.wikipedia.org/wiki/Aghori "The Aghori are a small, relatively obscure sect within the broader Hindu tradition. They are known for their distinctive practices and beliefs that set them apart from mainstream Hinduism. Aghoris are often associated with extreme rituals and behaviors that can be quite shocking to outsiders")
+- [CatharismX](https://en.wikipedia.org/wiki/Catharism "Catharism was a Christian dualist or Gnostic movement from 12th - 14th century which took hold generally in northern Italy and southern France. Followers were described as Cathars (or Albigensians; named after the French city of Albi) and referred to themselves as Good Christians, aimed against the feudal system and church hierarchy. The main point of the Cathar doctrine was the belief that the material world is evil, under the power of an evil God and is opposed to the spiritual world belonging to a good God. The Cathars denied the incarnation and martyrdom of Jesus and rejected everything they considered material (food of animal origin, sexual contact).")
+- [Jediism](https://en.wikipedia.org/wiki/Jediism "Jediism is a belief system or spiritual philosophy inspired by the fictional Jedi Order from the Star Wars franchise. It emerged as a real-world movement with the aim of providing individuals with a set of guiding principles and values based on the ideals portrayed by the Jedi characters in the Star Wars movies")
+- [Polish Catholic Church](https://en.wikipedia.org/wiki/Polish-Catholic_Church_of_the_Republic_of_Poland "The Polish-Catholic Church of Republic of Poland, also known as the Church of Poland or Polish Catholic Church is a Polish Old Catholic church in Poland, which is part of the Union of Utrecht, a member of the World Council of Churches and the Polish Ecumenical Council, and isn't affiliated with the Roman Catholic Church which is the most popular denomination in Poland. The main difference lies in the special worship of the Virgin Mary, two forms of confession: individual (early in the confessional - children and young people are obliged to make individual confession and the sacrament of confirmation) and general (celebrated either as a separate ritual in front of the altar or in combination with the Holy Mass in the part called general confession), and not recognizing the dogma of papal infallibility.")
+
+  
+
+- [AntrovisX C](https://www.reddit.com/r/TrueCrime/comments/wfbdam/antrovis_an_antisemitic_ufo_cult_would_be_formed/ "International Center for the Renewal of People and Earth \"Antrovis\" was a very obscure religious cult operating in the 80's and 90's in Poland, founded by bioenergotherapist Edward Mielnik in Wrocław. The members of the movement believed in the existence of universe permeated by the presence of God perceived as an immanent force. In this vision, the Earth has an ambivalent character - it upholds the laws of the cosmos, but on the other hand, it's the place of exile of creatures endowed with free will, which the members of Antrovis perceive pejoratively as an equivalent of christian sin. This cult combined Christianity, local paganism and ufology, and had a rich lore, such as a mission from Mary to save the Slavs with the help of aliens, Slavs - the guardians of the canon of twelve universal laws - from the planet Atlanta who settled in today's Poland eight billion years ago, the Hebrews from the planet Hebro, the fight between the Slavs and the Hebrews, the unification of all civilizat")
+- [Crypto-Judaism](https://en.wikipedia.org/wiki/Crypto-Judaism "Crypto-Judaism refers to the practice of secretly maintaining Jewish traditions, beliefs, and identity while publicly adhering to another religion or cultural identity. This phenomenon has historically occurred in times and places where practicing Judaism openly was dangerous due to religious persecution, social discrimination, or legal restrictions. The term \"crypto\" comes from the Greek word for \"hidden\" or \"secret.\"")
+
+  
+
+- [God Worshipping SocietyX C](https://en.wikipedia.org/wiki/God_Worshipping_Society "A religious movement founded and led by Hong Xiuquan - the leader of the Taiping Rebellion - which drew on his own unique interpretation of Protestant Christianity and combined it with Chinese folk religion, based on the faith in Shangdi (\"Highest/Primordial God\"), and other religious traditions. The cult was created as a result of a cursory reading of \"Good Words to Admonish the Age\" and under the influence of the views of Liang Fa, a Chinese convert to Christianity, who preached the vision of a harsh and cruel God the Father, according to which he considered himself the younger brother of Jesus Christ and the emissary of the Christian God who allegedly had order him to expel the \"demons\", the Manchu rulers of China, thus creating his own theology.")
+- [Happy ScienceC](https://en.wikipedia.org/wiki/Happy%20Science "Happy Science is a religious and spiritual movement founded by Ryuho Okawa in Japan. It combines elements of Buddhism, Christianity, and various other spiritual traditions with Okawa's own teachings. The movement is officially called \"The Institute for Research in Human Happiness\" and is also known as \"Kofuku-no-Kagaku\" in Japanese, which translates to \"Science of Happiness.\"")

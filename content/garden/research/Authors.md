@@ -1,0 +1,726 @@
+---
+tags:
+  - garden
+  - iceberg
+---
+- A. A. Milne
+- A.A. Milne
+- Abby Jimenez
+- Adam Smith
+- Aeschines
+- Aeschylus
+- Aesop
+- Agatha Christie
+- Ágota Kristóf
+- Aiyaz Uddin
+- Akira Toriyama
+- Akwaeke Emezi
+- Albert Camus
+- Albert Einstein
+- Albert K. Bender
+- Alberto Moravia
+- Alcuin
+- Aleister Crowley
+- Aleksandr Solzhenitsyn
+- Alex Finlay
+- Alex Mayyasi
+- Alexandra Oliva
+- Alexandre Dumas
+- Alfred Lord Tennyson
+- Alfred, Lord Tennyson
+- Alice Walker
+- Ambrosius
+- Ammianus
+- Ana Huang
+- Anaïs Nin
+- Andocides
+- Andrea Debbink
+- Andreas Karavis
+- Andrei Marsov
+- Andy Warhol
+- Ann Liang
+- Anna Cowan
+- Anthea Durand
+- Anthon St. Maarten
+- Anthony Storr
+- Anthony the Great
+- Antiphon
+- Anton Chekov
+- Antonin Artaud
+- Apicius
+- Apollodorus
+- Apollonius
+- April Davila
+- Apuleius
+- Aquinas
+- Aristophanes
+- Aristotle
+- Arthur C. Clarke
+- Arthur Conan Doyle
+- Arthur Miller
+- Arthur Rackham
+- Arthur Ransome
+- Asa Briggs
+- Asconius
+- Astrid Lindgren
+- Audre Lorde
+- Augusta
+- Augustine
+- Augustus
+- Aurelius
+- Ausonius
+- Austin Grossman
+- author
+- Avianus
+- Awake Emezi
+- Ayn Rand
+- Bacchylides
+- Bacon
+- Banana Yoshimoto
+- Barack Obama
+- Barbara Cartland
+- Barbara Ward, Baroness Jackson of Lodsworth
+- Baroness Orczy
+- Beatrix Potter
+- Belsebuub
+- Ben "Yahtzee" Croshaw
+- Bernadine Evaristo
+- Bernard M Baruch
+- Bertrand Russell
+- Betty Mahmoody
+- Beverly Gage
+- Biblia
+- Bob Ross
+- Bob Staake
+- Bonaventure
+- Bracciolini
+- Bram Stoker
+- Bret Easton Ellis
+- Brian Lumley
+- Brian Mayers
+- Briar Boleyn
+- Brooke Averick
+- Brooke Fast
+- Bruce Robertson (designer)
+- Bruno Schulz
+- Bryan Washington
+- C G Drews
+- C S Lewis
+- C. S. Forester
+- C. S. Lewis
+- C. W. Valentine
+- C.G. Jung
+- C.S. Forster
+- Caesar
+- Cameron Pierce
+- Candice Carty-Williams
+- Cara Bastone
+- Carl Sandburg
+- Carley Fortune
+- Carlos Castaneda
+- Caro Claire Burke
+- Carson McCullers
+- Cassiodorus
+- Cat Clarke
+- Cat Sebastian
+- Catherine Cowles
+- Cato
+- Catonis
+- Catullus
+- Cecil Beaton
+- Cecile Pin
+- Charles Bukowski
+- Charles Darwin
+- Charles Dickens
+- Charlotte Brontë
+- Chimamanda Ngozi Adiche
+- Christian
+- Christina Applegate
+- Christopher Isherwood
+- Chuck Jones
+- Chuck Palahniuk
+- Cicero
+- Claire Duende
+- Claudian
+- Claudius
+- Clive Barker
+- Code
+- Colson Whitehead
+- Columella
+- Confucius
+- Cormac McCarthy
+- Corrie ten Boom
+- Crystal Jayme
+- D. H. Lawrence
+- Dacha Avelin
+- Daisy Pearce
+- Damien Hirst
+- Danielle Steel
+- Dante
+- Dante Alighieri
+- Darkly Lem
+- Darren H. Pryce
+- Dav Pilkey
+- Dave McGowan
+- David Foster Wallace
+- David Livingstone
+- David Sedaris
+- David Streitfeld
+- Demades
+- Demosthenes
+- Denis Neale
+- Denise Hunter
+- Dennis Cooper
+- Devney Perry
+- Dinarchus
+- Diodorus
+- Disticha
+- Dobrica Ćosić
+- Don DeLillo
+- Donatus
+- Doris Lessing
+- Dostoyevsky
+- Douglas Stuart
+- Dr Seuss
+- Dr. Seuss
+- E A Bucchianeri
+- E. E. Cummings
+- E. M. Forster
+- E.E. Cummings
+- E.M. Forster
+- Edgar Allan Poe
+- Edgar Wallace
+- Edith Wharton
+- Edmund Dulac
+- Edmund Dulac (prints & illustrated books)
+- Edward Williams
+- Eiichiro Oda
+- Einhard
+- Elbert Hubbard
+- Eleanor Alice Burford
+- Elizabeth Acevedo
+- Elizabeth Strout
+- Elle Kennedy
+- Eloghosa Osunde
+- Elsie Silver
+- Emil Cioran
+- Emily St John Mandel
+- Enid Blyton
+- Ennius
+- Enrico Terrinoni
+- Epictetus
+- Epicurus
+- Epitaphs
+- Erfan Rezaei
+- Eric Gill
+- Eric Gill (books and prints)
+- Ernest Hemingway
+- Ernest Miller Hemingway
+- Ernst Jünger
+- Euclid
+- Euripides
+- Eutropius
+- Evelyn Clarke
+- Evelyn Klebert
+- Evelyn Waugh
+- F. Scott Fitzgerald
+- Fabio Pedone
+- Felix
+- Félix Guattari
+- Ferdowsi
+- Flaccus
+- Flannery O'Connor
+- Florus
+- Fonda Lee
+- Fran ois Rabelais
+- Frances Hodgson Burnett
+- Frank G. Slaughter
+- Frank Herbert
+- Frank Zappa
+- Franz Kafka
+- Frederick Joseph
+- Freida McFadden
+- Friedrich August von Hayek
+- Friedrich Engels
+- Friedrich Nietzsche
+- Frontinus
+- Fyodor Dostoevsky
+- G. N. Garmonsway
+- G.I. Gurdjieff
+- Galen
+- Gellius
+- George Orwell
+- Georges Bataille
+- Gerald Abrahams
+- Gerald Durrell
+- Germano Facetti
+- Gesta
+- Giambattista Vico
+- Gilles Deleuze
+- Grace Metalious
+- Graham Greene
+- Great
+- Gregory
+- Gustave Flaubert
+- H. G. Wells
+- H. P. Lovecraft
+- H.G. Wells
+- Haley Pham
+- Hanif Abdurraqib
+- Harlan Ellison
+- Harper Lee
+- Harriet Beecher Stowe
+- Harry Willock
+- Haruki Murakami
+- Helena Petrovna Blavatsky
+- Hendrith Vanlon Smith Jr.
+- Henrik Ibsen
+- Henry Darger
+- Henry James
+- Henry Miller
+- Herman Melville
+- Hermann Hesse
+- Herodotus
+- Hesiod
+- Hippocrates
+- Hirohiko Araki
+- Hirtius
+- Historia
+- Homer
+- Horace
+- Hosts of NPR s Planet Money
+- Hubert Selby Jr.
+- Hunter S. Thompson
+- Hyginus
+- Hyperides
+- Iain Hamilton Grant
+- Ian Bradbery
+- Ian Fleming
+- Ibram X Kendi
+- Ibsen
+- Ijeoma Oluo
+- Immanuel Kant
+- Irenosen Okojie
+- Iris Murdoch
+- Irvine Welsh
+- Isaac Asimov
+- Isabel Klee
+- Isabel Wilkerson
+- Isaeus
+- Isocrates
+- Israel Morrow
+- Italicus
+- Italo Calvino
+- Iva Kenaz
+- Ivan Holmes
+- J K Rowling
+- J. A. Hadfield
+- J. Bronowski
+- J. G. Ballard
+- J. K. Rowling
+- J. Mark Bertrand
+- J. P. Donleavy
+- J. R. R. Tolkien
+- J.I Seegars
+- J.K. Rowling
+- J.M. Barrie
+- J.R.R. Tolkien
+- Jack Higgins
+- Jack Kerouac
+- Jack Ketchum
+- Jack London
+- Jack Trevor Story
+- Jacques Rivière
+- Jalal ad-Din Muhammad ar-Rumi
+- James A. Michener
+- James Baldwin
+- James C Glassford
+- James D. Watson
+- James Joyce
+- James Kelman
+- James Mason
+- James S A Corey
+- Jane Austen
+- Janet Dailey
+- Jasmine Guillory
+- Jean Baudrillard
+- Jean Genet
+- Jean-Paul Sartre
+- Jeff Kinney
+- Jeffrey Rasley
+- Jennie Garth
+- Jennifer N Brown
+- Jennifer Sodini
+- Jenny Lawson
+- Jesmyn Ward
+- Jessica George
+- Jim Henson
+- Jo Murray
+- Joan Didion
+- Joan Lindsay
+- John Braine
+- John Grisham
+- John Hall
+- John Hawkes
+- John Keats
+- John Kennedy Toole
+- John Lennon
+- John Maynard Keynes
+- John Milton
+- John Steinbeck
+- John Williams
+- John Williams Wright II
+- Jonathan Swift
+- Jordanes
+- Jorge Luis Borges
+- Joseph Heller
+- Josephus
+- Jules Verne
+- Julia Alexandra
+- Julián Ríos
+- Julius
+- Julius Caesar
+- Junauda Petrus
+- June Hur
+- Junji Ito
+- Justin
+- Justinian
+- Juvenal
+- Ka-Tzetnik 135633
+- Kahlil Gibran
+- Karl Marx
+- Karl May
+- Kate Chopin
+- Katherine Center
+- Kathryn Stockett
+- Kathy Acker
+- Kazuo Ishiguro
+- Keigo Higashino
+- Keith Burns (designer)
+- Keith Haring
+- Keith Whitehead
+- KEN KAMMAL
+- Kennedy Ryan
+- Kevin Ashton
+- Kevin J H Dettmar
+- Kimberly McCreight
+- Knut Hamsun
+- Kōbō Abe
+- Kodwo Eshun
+- Koji Suzuki
+- Konstantin Simonov
+- Koushun Takami
+- Kristin Dwyer
+- Kurt Vonnegut
+- Kurt Vonnegut Jr
+- Kylie Lee Baker
+- Kyotaro Nishimura
+- L. Ron Hubbard
+- Lactantius
+- Langston Hughes
+- Lao-tzu
+- Larry McMurtry
+- László Krasznahorkai
+- Latin
+- Laura  Oliva
+- Laurence Labadie
+- Laurence Sterne
+- Laurie Frankel
+- Lawrence Durrell
+- Leo Tolstoy
+- Leonardo da Vinci
+- Lewis Carroll
+- Lindy West
+- Lisa F Rosenberg
+- Livy
+- Liz Tomforde
+- Louis de Berni res
+- Louis-Ferdinand Céline
+- Lucan
+- Lucretius
+- Lucy Mair
+- Lucy Score
+- Ludwig Wittgenstein
+- Luke Dumas
+- Luke Larkin
+- Lycurgus
+- Lysias
+- M L Stedman
+- M.N.M-D.R.
+- Maaluir
+- Mac Barnett
+- Mae West
+- Mahatma Gandhi
+- Manilius
+- Manly P. Hall
+- Marcel Proust
+- Marcellinus
+- Marcus Aurelius
+- Marcus Kliewer
+- Marcus Tullius Cicero
+- Margaret Atwood
+- Margaret Thatcher
+- Marissa Meyer
+- Mark Fisher
+- Mark Twain
+- Mark Z. Danielewski
+- Marko Marulić
+- Marlon James
+- Marquis De Sade
+- Martha Wells
+- Martial
+- Martin Causer
+- Martin Luther King Jr
+- Mary Shelley
+- Mary Shelley (generic author listing; includes Frankenstein, etc.)
+- Mary Wollstonecraft
+- Mary-Jean Harris
+- Mat Auryn
+- Matt Dinniman
+- Matt Goulding
+- Matt Haig
+- Matt Shaw
+- Matthew Stokoe
+- Max Ernst
+- Max Francis
+- Max Stirner
+- Maxim Gorky
+- Maximus
+- Maya Angelou
+- Medieval
+- Meg Shaffer
+- Megan Lally
+- Mehmet Murat ildan
+- Mia McKenzie
+- Michael Bassey Johnson
+- Michael Ende
+- Michael Innes
+- Michael Rosen
+- Miguel de Cervantes
+- Milton William Cooper
+- Minucius
+- Miroslav Krleža
+- Miscellany
+- Monika Kim
+- Moorea Corrigan
+- Naevius
+- Name
+- Nancy Lieder
+- Nasim Afsar
+- Navessa Allen
+- Neil Gaiman
+- Neo-Latin
+- Nepos
+- Nick Land
+- Nik Henderson
+- Nisha J Tuli
+- Nora Roberts
+- Norman Douglas
+- Obsequens
+- Octavia Butler
+- Octavia E. Butler
+- Omar Khayyam
+- Omnific
+- Osamu Dazai
+- Osamu Tezuka
+- Oscar Wilde
+- Ovid
+- P. G. Moore
+- P. G. Wodehouse
+- P.G. Wodehouse
+- Pablo Picasso
+- Paige Lewis
+- Paterculus
+- Patrick McCreeth
+- Patrick Radden Keefe
+- Paul Mendez
+- Pausanias
+- Penny Jordan
+- Pentagram (design firm)
+- Persius
+- Peter Ackroyd
+- Peter Forster (designer)
+- Peter Watts
+- Peter Wessel Zapffe
+- Petronius
+- Phaedrus
+- Pharaoh Don Seddique
+- Phil Jackson
+- Philip K. Dick
+- Philip Pullman
+- Pierre Teilhard de Chardin
+- Pindar
+- Plato
+- Plautus
+- Pliny the Elder
+- Pliny the Younger
+- Plotinus
+- Plutarch
+- Poggio
+- Poppy Z. Brite
+- Porphyry
+- Portia Elan
+- Priapea
+- Propertius
+- Prudentius
+- qntm
+- Quintilian
+- Quintus
+- R. J. C. Harris
+- R.L Stine
+- Rachel Hochhauser
+- Ray Bradbury
+- Remy de Gourmont
+- Richard Dawkins
+- Richard Ellmann
+- Richard Matheson
+- Rick Riordan
+- Riss M Neilson
+- Roald Dahl
+- Robby Joshi AIA
+- Robert A. Heinlein
+- Robert Bloch
+- Robert Browning
+- Robert Burns
+- Robert Frost
+- Robert Munsch
+- Robert Walser
+- Robert Whitlow
+- Roberto Bolaño
+- Robin Fox
+- Robin S. Baker
+- Roman
+- Romanorum
+- Rosemary Hemphill
+- Rosie Walsh
+- Roxanne Gay
+- Rudolf Steiner
+- Rudyard Kipling
+- Ryōtarō Shiba
+- Ryū Murakami
+- Ryūnosuke Akutagawa
+- S A Chakraborty
+- Sa'di
+- Sacra
+- Sadie Plant
+- Salah Niazi
+- Sallust
+- Sally Hepworth
+- Salman Rushdie
+- Samuel Beckett
+- Samuel Johnson
+- Sarah A Parker
+- Sarah Damoff
+- Sarah L Thomson
+- Savannah Stephens
+- Seamus Heaney
+- Sebastian Bastian
+- Seneca
+- Senta Belay
+- Serge Benhayon
+- Shakespeare
+- Shannon Chakraborty
+- Sheryl Sandberg
+- Shirley Jackson
+- Sidney Sheldon
+- Siegfried Sassoon
+- Sigrid Undset
+- Silius
+- Sir Walter Scott
+- Sol Luckman
+- Sophocles
+- Statius
+- Stefan Zweig
+- Stefano Bartezzaghi
+- Stephen King
+- Steven Lomazow
+- Strabo
+- Suetonius
+- Sulpicia
+- Sun Tzu
+- Sunyi Dean
+- Susan Hill
+- Suzanne Simard
+- Sylvia Plath
+- Syrus
+- T J Klune
+- T Kingfisher
+- T Kira Madden
+- T. E. Lawrence
+- T. H. White
+- T. S. Eliot
+- T.H. White
+- Ta-Nehisi Coates
+- Tacitus
+- Tamara Moss
+- Tana French
+- Terence
+- Terry McMillan
+- Terry Pratchett
+- Terry Tempest Williams
+- Tertullian
+- the
+- The Silver Elves
+- Theodor Seuss Geisel
+- Theodosian
+- Thomas Arnold
+- Thomas Bernhard
+- Thomas Hardy
+- Thomas Karlsson
+- Thomas Ligotti
+- Thomas Pynchon
+- Thucydides
+- Tibullus
+- Tiffany Crum
+- Tom Clancy
+- Toni Morrison
+- Tracey Emin
+- Trevor Bailey
+- Truman Capote
+- TyAnn Osborn
+- V E Schwab
+- Valerius
+- Various artists
+- Varro
+- Vegetius
+- Velleius
+- Veronica Roth
+- Victor
+- Victor Hugo
+- Vincent van Gogh
+- Virgil
+- Virginia Woolf
+- Vitruvius
+- Vladimir Nabokov
+- W B Yeats
+- W. B. Yeats
+- W. G. Moore
+- W. Grey Walter
+- W.B. Yeats
+- Walker Percy
+- Walt Disney
+- Walt Disney (generic author/creator listing)
+- Warren Buffett
+- Whitley Strieber
+- William Blake
+- William Faulkner
+- William Faulkner (already noted)
+- William Gibson
+- William Golding
+- William H.Gass
+- William Kentridge
+- William Luther Pierce
+- William Morris
+- William Powell
+- William S. Burroughs
+- William Shakespeare
+- William W Purkey
+- Winston Churchill
+- Woody Allen
+- X chitl Gonz lez
+- Xenophon
+- Yukio Mishima
+- Zach Charles
+- Zadie Smith
+- Zakiya Dalia Harris
+- Zoe Sivak

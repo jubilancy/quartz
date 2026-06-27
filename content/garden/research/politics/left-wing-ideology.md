@@ -1,0 +1,145 @@
+---
+title: "left wing ideology"
+---
+
+# left-wing-ideology
+
+> Published on Jan 8, 2026
+
+- Acid Communism
+- African Socialism
+- American Communism
+- Anarcho-Collectivism
+- Anarcho-Communism
+- Anarcho-Syndicalism
+- Anti-Authoritarianism (left wing)
+- Arab Socialism
+- Austromarxism
+- Autonomism
+- Barracks Communism
+- Blanquism
+- Bookchin Communalism
+- Brezhnev Doctrine
+- Britannocommunism
+- Buddhist Socialism
+- Bundism
+- Burmese Socialism
+- Castroism
+- Centrist Marxism
+- Chavismo
+- Christian Communism
+- Christian Socialism
+- Classical Marxism
+- Cliffism
+- Communism
+- Communism (Marx and Engels definition)
+- Conservative Socialism
+- Council Communism
+- De Leonism
+- Democratic Confederatism
+- Democratic Socialism
+- Dengism
+- Eco-Socialism
+- Ego-Communism
+- Esoteric Socialism
+- Eurocommunism
+- Euskadi Carlism
+- Fabian Socialism
+- Fourth Theory
+- Frankfurt Socialism
+- Gaddafism
+- Gandhian Socialism
+- Geosyndicalism
+- Gorbachevism
+- Goulash Communism
+- Gravelism
+- Green Syndicalism
+- Guevarism
+- Guild Socialism
+- Habashism
+- Ho Chi Minh Thought
+- Honeckerism
+- Hoxhaism
+- Impossibilism
+- Independence Anarchism
+- Juche
+- Kaypakkayaism
+- Kemalism/Atatürkism
+- Khrushchevism
+- Labour Zionism
+- Labourism
+- Left Communism
+- Left Shachtmanism
+- Left-Wing Nationalism
+- Left-Wing Populism
+- Leninism
+- Liberal Socialism
+- Libertarian Market Socialism
+- Libertarian Marxism
+- Libertarian Socialism
+- Lukashenkoism
+- Lulism
+- Luxemburgism
+- Machajskism
+- Mao-Spontex
+- Maoism
+- Maoism–Third Worldism
+- Marhaenism
+- Market Socialism
+- Marxism
+- Marxism–Leninism
+- Marxism–Leninism–Maoism
+- Marxist Feminism
+- Minarcho-Socialism
+- Monarcho-Socialism
+- Monarcho-Syndicalism
+- Mugabeism
+- Mujicaism
+- Nasserism
+- National Bolshevism
+- National Communism
+- National Syndicalism
+- Neozapatismo
+- Orthodox Marxism
+- Paetelism
+- Pagan Leftism
+- Paleosocialism
+- Pancasila (left wing)
+- Participism
+- Platformism
+- Pol Potism
+- Posadism
+- Post-Left Anarchism
+- Reactionary Socialism
+- Reformism (left wing)
+- Reformist Marxism
+- Religious Socialism
+- Sandinismo
+- Sankarism
+- Saturnalianism
+- Situationism
+- Social Anarchism
+- Social Authoritarianism
+- Social Corporatism
+- Social Democracy
+- Social Distributism
+- Social Georgism
+- Socialism
+- Socialism (Marx and Engels definition)
+- Socialist Antifascism
+- Socialist Transhumanism
+- Soviet Restorationism
+- Stalinism
+- State Socialism
+- Strasserism
+- Syndicalism
+- Titoism
+- Trotskyism
+- Ujamaa
+- Ultravisionary Socialism
+- Union Socialism
+- Utopian Socialism
+- Welfare Chauvinism
+- Xi-ism
+- Žižekianism
+- Zyuganovism

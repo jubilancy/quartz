@@ -1,0 +1,340 @@
+---
+title: "Abrahamic Iceberg"
+---
+
+- The Trinity
+- Isa al Masih (pbuh)
+- The Tawrah
+- Job (pbuh)
+- Sharia Law
+- The Ten Commandments
+- The Ark of the Covenant
+- The Kaaba
+- Jerusalem
+- Orthodox
+- Protestant
+- Catholic
+- Heaven and Hell
+- The Tetragrammaton
+- The Mu'qattat
+- 99 names of Allah
+- Baal
+- Hubal
+- Mary as the Mother of God in Christian belief
+- Shi'ism
+- Day of Judgment/Wrath
+- The Tower of Babylon
+- Fallen Angels/Djinn
+- The Book of Revelations
+- Book of Enoch
+- Kabbalah
+- Son of God in the Old Testament
+- Muhammad is the prophesied paraclete
+- Yahweh Canaanite Origin Theory
+- Allat, Al-Uzza and Al Manat
+- The Black Stone
+- Biblically Accurate Angels
+- The Binding of Isaac (pbuh)/Ishamael (pbuh)
+- Dajjal/Antichrist
+- Heaven and Hell are mostly mentioned in later Abrahamic texts
+- Eye of the Needle meaning.
+- Qliphoth
+- Gospel of Judas
+- Genocide of the Canaanites and Amalekites in the Old Testament.
+- Satanic Verses
+- The Oldest manuscript of a canonical gospel is from two centuries after Jesus (pbuh)
+- The Torah was orally transmitted for millenias.
+- Baetyls
+- Banu Quryaza and Banu Nadir
+- Yalbadaoth
+- "Ezekiel was high when he had his visions"
+- The Mu'qattat is the Tetragrammaton
+- Melchidizek is Khidr (pbuh)
+- Israilliyat
+- The WORD of God
+- Nehushutan
+- "Metatron is a lesser YHWH"
+- Yazdanism is a precursor/brother to the Abrahamic Religions
+- Jesus's (pbuh) wife
+- Islamically Accurate Angels
+- Asherah
+- "Yahweh/Allah is actually the Phonecian God El"
+- One of the titles for God in the Hebrew Bible; "Elohim" is plural
+- Pluralism in the Quran
+- Archons
+- Solomon (pbuh) used demons/djinn to build the Temple of Solomon
+- Helel
+- Azazil
+- Hazrat Aisha age
+- Lilith
+- The Angel of the LORD
+- Book of Esdras
+- The sons of Cain survived the flood
+- Pagan gods are demons
+- Muslims originally were going to have to pray 50 times a day
+- Allah called upon all souls before human era and summoned them to prostrate before him
+- Guf
+- The Ark of the Covenant is in Mecca
+- Moses (pbuh), Jethro (pbuh), Aaron (pbuh) and the Israelites visited and prayed at Mecca
+- Imam Musa Al Kazim's story is a secret reference to the story of Jesus Christ
+- Jesus (pbuh) died of a broken heart
+- Ubayd-Allah ibn Jahsh and those who met the prophet yet became apostates
+- Attributes of Allah
+- Christianity is secretly Sun Worship
+- Dhul Al Kifl (pbuh) is actually the Buddha
+- 2 Jewish Messiahs
+- The Divine Council of Psalm 82
+- Qenite Hypothesis
+- Devarim 32 mention of the Hellfire
+- "Mecca was originally in Petra before the Abbasids moved it to Saudi Arabia to justify their Caliphate"
+- The Trinity is logically impossible
+- Believing the Quran was uncreated is shirk
+- No one truly knows the Quran but Allah
+- Talmudic verses saying that non-jews are animals, deserving to be tortured and killed
+- Judgment on Midian in Numbers 31
+- "Muhammad (pbuh) is the 10th incarnation of Vishnu"
+- Genesis 6:9 refers to Noah's (pbuh) genes
+- Moses (pbuh) is actually Aten
+- The Original Gospel
+- Muhammad (pbuh) is the Jewish Messiah
+- The Righteous Priest
+- Trinitarian Implications of Book of Zechariah
+- Moses (pbuh) had horns
+- Baal is a name of God
+- The Light of Muhammad (pbuh)
+- Aaron pbuh, James and Hazrat Ali.
+- Gospel of the Ebionites is the Injil
+- Hijabullah
+- Uzayr is 'Ezer. A helper intercessor the Jews turned to.
+- Jesus (pbuh) denied being the Messiah ben David but was rather the Messiah ben Yosef
+- "Judaism and Islam are secretly Saturn-Worship"
+- There are other sons of god/demigods
+- Mark of Cain is Lycanthropy
+- The Trinity is a Hive Mind
+- The Holy Spirit is a woman
+- Book of Giants and Book of Enoch are primitive descriptions of an advanced alien race messing with Earthly life genome creating all kinds of monsters, Enoch is some kind of tech-messiah
+- The Quran does not follow Ziph's Law
+- Jesus (pbuh) fought demigods after he died
+- Umar ibn Khattab is the Jewish Messiah
+- Ahl Al Bayt in the Bible
+- Temple Theology
+- Any images of any entity are prohibited in Judaism, Christianity and Islam.
+- Xenia in the Bible and Quran
+- The Rams of Helios and the She-Camel of Salih (pbuh).
+- Secret meaning behind Arabic and Hebrew Letters and how they are the fundamental controllers of our universe.
+- The Righteous will laugh at the Wicked when they are judged
+- Ismaili Cosmology
+- Jewish Ismailism
+- Tawfidh of Khalq Rizq
+- Paul the Apostle, Ibn Sabaa and Samiri
+- Joshua, Peter and Abu Bakr
+- Ezra corrupted the Tanakh
+- Missing Books of the Bible
+- Early Muslims were Christians
+- Accursed Heavenly Bodies
+- The Samaritan Pentateuch is the closest thing we have to the original Torah
+- "Satan/Lucifer is a son of god"
+- "Missing surahs"
+- Ghulat sects have some of the most interesting Muslim spinoff theologies
+- The Bible is pretty much the story of the different zodiac ages and them transitioning to one another
+- "Jesus (pbuh) cried out to Hazrat Ali when he was on the cross"
+- Jews are the descendants of Canaan according to the Bible
+- The Pashtuns are the Promised People
+- "Muhammad (pbuh) is a descendent of the Nephilim."
+- Jesus (pbuh) claimants
+- Umm-Al-Kitab
+- The Righteous Priest is Imam Al Mahdi
+- "The 14 Masumeen are the Elohim/Angel of the LORD"
+- High Priesthood, Papacy and the Imamate
+- Similarities between Arian Christianity and Akhbari Tafwidhism
+- Hidden Name of God
+- Bab, Ism, Ma'ana
+- British Israelism
+- "The Abrahamic God is Roko's Bassilisk"
+- What does God sound like?
+- This life IS HELL
+- What did Prophet Muhammad (pbuh) know that made him laugh a little and cry a lot?
+- If you had the choice to eliminate the Devil/Lucifer/Satan from all history and existence, would you?
+- "Heaven is Hell"
+- The Messiah or Anti-Messiah will arrive when the Age of Aquarius begins
+- "Only men will enter the Kingdom of Heaven"
+- Messianic Figure from Edom
+- Sunni Zurvaniyyah
+- THE FINAL UNDERSTANDING.
+- Seven names, Seven Spirits, Seven Ages of Ism
+- Proto Sinaitic inscriptions of Moses.
+- Genesis
+- Adam and Eve
+- Abraham
+- Book of Revelation
+- Sunni and Shia Islam
+- Christmas/Easter
+- Bible/Torah/Quran
+- Passover/Hanukkah
+- Jesus/Joshua of Joseph/Yeshua/Isa
+- Trinity
+- Lucifer/The Devil/Iblis
+- Mecca
+- Ramadan
+- Israel
+- Luther Protest
+- Juan Diego
+- Dante's Inferno
+- Adam named all Animals
+- Tawhid
+- Flood Myths
+- Exorcisms
+- Lilith
+- Earth is 6,000 Years Old
+- Jinns
+- Exorcisms
+- Hong Xiuquan
+- Accurate Angel's
+- Christianized Mythologies
+- Holy Grail
+- Historic Jesus
+- 1,000 Human Years=1 God Day
+- Jesus and Buddha Anime
+- 7 Seals of the Apocalypse
+- Satan and the Devil are not the same entity
+- Book of Enoch
+- Cain is still alive
+- No Snakes in Ireland
+- 3 Secrets of Fatima
+- 72 Demons
+- Adam Kadmon is Humanities Blueprint
+- Golem of Prague
+- Beast of the Earth/Sea
+- Nephilim
+- Wrestled with God
+- Burning Bush
+- 613 Commandments
+- Tacitus
+- Spear of Destiny
+- Ecumenical Councils
+- Third Temple
+- Jesus Lost Years
+- Star of Bethlehem
+- Millenialism
+- Jesus Relics
+- Samson Jawbone
+- Dybbuk
+- Cilice
+- Jesus Relics
+- Zoroastrian Influence
+- Behemoth was a dinaosaur
+- Goliath accurate height
+- Kabbalah
+- Ask and Embla
+- Gospel of Judas
+- Jesus date of birth
+- The Q Source
+- Grendal
+- Satanic Verses
+- Book of Invasions
+- Adamic Language
+- St. George Dragon
+- St. Andrew Cross
+- Jesus Fish
+- 9 Billion Names of God
+- The three wisemen were Zoroastrian
+- Mount Ararat is the Ark landing place
+- Uriel guards the Garden of Eden
+- The Leviathan is Jormungandr
+- Bad translations created Unicorns
+- Witch of Endor
+- Unknown Supreme God in Norse
+- Gog and Magog
+- Seven Heavens
+- Hadiths
+- Jesus Siblings
+- Throne of God
+- Amalekites
+- Secret Vatican Archives
+- Qliphoth
+- Mastema
+- Gospel of Barnabas
+- Valley of the Ants
+- Seven Archangels
+- God's Blind Spot
+- Queen of Sheba
+- 2 Enochs
+- Wandering Jew
+- Mastema
+- Cursing the Fig Tree
+- Atenism was a mix of Egyptian and Abrahamic
+- Giants were Neanderthals
+- Isukiri
+- Eruv around New York City
+- Metatron is Enoch
+- Tzadikim Nistarim
+- No stairs allowed in an Altar of God
+- Anti-Christ Napoleon
+- Swoon Hypothesis
+- 144,000
+- Gehenna
+- Legion
+- Fiery flying Serpents
+- Marian Apparitions
+- Pre-Islamic Mythology
+- Simp Solomon
+- Melchizedek was Jesus' ancestor
+- King James Bible is a bad translation
+- Thanatos is the Pale Horseman
+- Ark of the Covenant in Ethiopia
+- Gospel of Mary Magdalene
+- Abaddon/Apollyon is Tartarus
+- Divine Council
+- Sword of Islam
+- The Forbidden Fruit wasn't an apple
+- Khidr, Melchizedek and Shem are the same person
+- Jesus learned from Buddhists
+- Chi Roh
+- Zabaniyah
+- Chronovisor
+- Beast of the Earth/Lotan/Yamato-No-Orichi/Hydra are the same species
+- Agnostos Theo is the Hebrew God
+- Mithra Influence
+- Mephisto is Slenderman
+- Jonah is a parody
+- Kalki is the White Horseman
+- The Devil is from Zoroastrian Mythology
+- Jesus lived in Britain
+- Elijah Chariot of Fire
+- Sin prevents us from hearing Animals
+- The Serpent name is Horon
+- Adam and Eve Cylinder Seal
+- Jesus Wand
+- Earth Women
+- Seven Bowls
+- Wormwood
+- Great Chain of Being
+- Sheol is a Underworld, but not the same Greek Underworld
+- Tehom, Nu, Abzu are the same
+- Akhenaten is Moses
+- Ghouls are canon in Islam
+- Demons stole names of other Mythologies Gods
+- Roza Bal
+- Book of the 12
+- 14 Holy Helpers
+- Melchizedek was a self-insert OC
+- Question if Jesus can't/didn't sin
+- Jesus met a family of Dragons
+- Cross is inspired by the Ankh
+- Extra-Quranic prophets of Islam
+- Archangels and Normal Angels look vastly different
+- Multiple Satans
+- Merovingian related to Jesus
+- Outer Darkness refers to other myth afterlives
+- Exodus occurred during Thutmose II rule
+- Lost Books
+- Dudael
+- Tribe of Dan went to Ireland
+- Song of Songs
+- José Rizal is part of Trinity
+- Lost Hadiths
+- The Quran doesn't obey Zipf's Law
+- Jesus's Transfiguration
+- Location of Ophir
+- Tzoah Rotachat
+- God is personalized

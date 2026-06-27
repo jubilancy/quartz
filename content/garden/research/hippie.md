@@ -1,0 +1,36 @@
+---
+tags:
+  - garden
+  - iceberg
+---
+- San Francisco, the epicenter
+- Psychedelism
+- ecology
+- egalitarian
+- Allen Ginsberg
+- drugs (especially LSD)
+- Summer of Love
+- Grace Slick
+- mainly based on music
+- Peace and love ☮
+- Woodstock Festival
+- long hair
+- tie and dye
+- Psychedelic rock
+- The Beatles
+- Further
+- anti-commercialism
+- Human Be-In
+- Jim Morrison
+- Flower Power
+- sexual freedom
+- Hippie trail
+- Anthropology, especially minor ethnicities
+- Nambassa
+- Jésus christ est un hippie
+- Gaia Theories
+- naturism
+- Grace Slick
+- La Fenêtre rose
+- Fight for the Larzac
+- baba cool

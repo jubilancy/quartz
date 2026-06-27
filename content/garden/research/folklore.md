@@ -1,0 +1,708 @@
+# ultimate religious mythological and folklore theory and speculation Iceberg
+- [Hero's journey](https://en.wikipedia.org/wiki/Hero%27s_journey)
+- [Comparative mythology](https://en.wikipedia.org/wiki/Comparative_mythology)
+- [Comparative religion](https://en.wikipedia.org/wiki/Comparative_religion)
+- [Satan is good](https://www.reddit.com/r/atheism/comments/yufgih/satan_is_the_good_guy/)
+- [Eleusinian Mysteries](https://en.wikipedia.org/wiki/Eleusinian_Mysteries)
+- [Location of Atlantis](https://en.wikipedia.org/wiki/Proposed_locations_for_Atlantis)
+- [Giants Exist](https://www.discovermagazine.com/planet-earth/did-giants-ever-exist-the-question-isnt-as-crazy-as-it-sounds)
+- [Cyclops and elephants skulls](https://greekcitytimes.com/2023/01/28/cyclops-ancient-greeks-myth/)
+- [Date of the birth of Jesus](https://en.wikipedia.org/wiki/Date_of_the_birth_of_Jesus)
+- [Unknown years of Jesus](https://en.wikipedia.org/wiki/Unknown_years_of_Jesus)
+- [Shroud of Turin](https://en.wikipedia.org/wiki/Shroud_of_Turin)
+- [Race and appearance of Jesus](https://en.wikipedia.org/wiki/Race_and_appearance_of_Jesus)
+- [Flood myth](https://en.wikipedia.org/wiki/Flood_myth)
+- [Will-o'-the-Wisp explanation](https://pubs.acs.org/doi/10.1021/cen-v033n013.p1290)
+- [Lake monster](https://en.wikipedia.org/wiki/Lake_monster)
+- [Bigfoot](https://en.wikipedia.org/wiki/Bigfoot)
+- [Euhemerism](https://en.wikipedia.org/wiki/Euhemerism)
+- [Troy really exist ?](https://en.wikipedia.org/wiki/Trojan_War#Historical_basis)
+- [Demons are Pagan Gods](https://blog.adw.org/2016/07/pagan-gods-actually-demons-scriptural-view-matters/)
+- [Structuralist theory of mythology](https://en.wikipedia.org/wiki/Structuralist_theory_of_mythology)
+- [Kirisuto no Haka](https://en.wikipedia.org/wiki/Kirisuto_no_Haka)
+- [jesus was not dead but raised to the heaven by god](https://books.google.fr/books?id=ZmGrAgAAQBAJ&pg=PA85&redir_esc=y#v=onepage&q&f=false)
+- [Zeus influenced the imagery of christian god representation](https://www.reddit.com/r/atheism/comments/872rem/is_it_a_coincidence_that_the_image_of_both_zeus/)
+- [norse and christian mutual influences](https://www.quora.com/Did-Christianity-mix-with-Norse-mythology-during-its-initial-formation-and-foundation)
+- [epic of Gilgamesh, origin of the heracles myth](https://en.wikipedia.org/wiki/Epic_of_Gilgamesh#:~:text=The%20epic%20is%20regarded%20as,an%20influence%20for%20Homeric%20epics.)
+- [Montsalvage in France](https://fr.wikipedia.org/wiki/Montsalvage)
+- [jesus was homosuxual](https://www.theguardian.com/commentisfree/belief/2012/apr/20/was-jesus-gay-probably)
+- [Stolen body hypothesis](https://en.wikipedia.org/wiki/Stolen_body_hypothesis)
+- [Historicity of King Arthur](https://en.wikipedia.org/wiki/Historicity_of_King_Arthur)
+- [Brothers of Jesus](https://en.wikipedia.org/wiki/Brothers_of_Jesus)
+- [Holy Prepuce](https://en.wikipedia.org/wiki/Holy_Prepuce)
+- [Fimbulvinter actualy happen](https://en.wikipedia.org/wiki/Fimbulwinter)
+- [Seiðr orign and practice](https://en.wikipedia.org/wiki/Sei%C3%B0r)
+- [Loki is a trickster](https://archive.org/details/TheProblemOfLoki)
+- [Plagues of Egypt was the result of the Santorini eruption](https://www.recustom.com/clips/science-explanation-of-the-plagues-4061960)
+- [Buddha influenced Jesus](https://www.newindianexpress.com/opinions/columns/2025/Mar/02/did-buddha-inspire-jesus)
+- [Joconde represent the Isis myths](https://www.amazon.fr/Isis-Joconde-r%C3%A9v%C3%A9l%C3%A9e-apr%C3%A8s-cr%C3%A9ation/dp/2953875921)
+- [Dhu al-Kifl is buddha](https://qahiri.wordpress.com/2015/09/23/the-buddha-an-islamic-prophet/)
+- [i’jaaz ilmy](https://fr.wikipedia.org/wiki/Miracles_scientifiques_du_Coran)
+- [The Psychoanalysis of Witchcraft](https://www.academia.edu/18514298/The_Psychoanalysis_of_Witchcraft)
+- [Gabriel von Max jesus portrait](https://upload.wikimedia.org/wikipedia/commons/a/a0/Gabriel_von_Max_Veraikon.jpg)
+- [why during the apocalyps jesus take the lamb form?](https://rdgstout.blogspot.com/2025/05/the-apocalypse-lamb.html)
+- [Melchizedek](https://en.wikipedia.org/wiki/Melchizedek)
+- [Dragon was dinosaur](https://creation.com/en/articles/were-dragons-real-in-medieval-times)
+- [Loki's Origin and identification with other figures](https://en.wikipedia.org/wiki/Loki#Origin_and_identification_with_other_figures)
+- [Thoth and the Big Bang Theory](https://www.shininglotus.com/thoth-and-the-big-bang-theory/)
+- [what is kokopelli](https://en.wikipedia.org/wiki/Kokopelli)
+- [jesus was a woman](https://www.theguardian.com/world/2006/jun/23/usa.religion)
+- [Disputation of Paris is the reason why the Cathedrale-notre-dame of Paris burnt](https://fr.timesofisrael.com/le-feu-a-notre-dame-un-chatiment-de-lautodafe-des-talmud-au-13e-siecle-rabbin/)
+- [Jesus go to hell](https://www.gotquestions.org/did-Jesus-go-to-hell.html)
+- [Jesus is Satan](https://www.quora.com/Satan-might-be-Jesus-and-Jesus-is-Satan-in-my-thoughts-what-do-you-think)
+- [Cursing of the fig tree](https://en.wikipedia.org/wiki/Cursing_of_the_fig_tree)
+- [Loki fonction](https://fr.wikipedia.org/wiki/Loki#%C3%89l%C3%A9ments_naturalistes)
+- [Utsuro-bune tell the story of an UFO](https://en.wikipedia.org/wiki/Utsuro-bune)
+- [The Teachings of Thoth, The Book Of Balance and Of Harmony, And The Modern Quantum Theory.](https://teresaversyp.com/thoth-taoism-and-quantum-theory/)
+- [rape of jesus!!](https://archive.org/details/oapen-20.500.12657-75990/mode/1up)
+- [jesus is an alcoholic](https://www.auchurch.com/resources/articles/2016/04/16/jesus-was-called-a-drunkardand-he-didnt-deny-it)
+- [Dinosaur was Djinn](https://babarahmad.com/2025/06/04/the-story-of-the-day-of-arafah-began-when-jinns-and-dinosaurs-inhabited-the-earth/)
+- [Loki's Special features and place in the pantheon](https://fr.wikipedia.org/wiki/Loki#Particularit%C3%A9s_et_place_dans_le_panth%C3%A9on)
+- [Loki's wager](https://en.wikipedia.org/wiki/Loki%27s_wager)
+- [Tiberius Julius Abdes Pantera](https://en.wikipedia.org/wiki/Tiberius_Julius_Abdes_Pantera "Pantera hypothesis: father of Jesus")
+- [Amaterasu was originally conceived of as the consort or priestess of a male solar deity](https://en.wikipedia.org/wiki/Amaterasu#Name)
+# Mythology and folklore Iceberg
+- Egyptian Mythology
+- greek mythology
+- aztec mythology
+- norse mythology
+- roman mythology
+- Religion
+- indigenous tales
+- chinese mythology
+- hindu mythology
+- japanese mythology
+- finnish mythology
+- Lovecraftian Mythology
+- folklore
+- Tolkien Mythlogy
+- mayan mythology
+- korean mythology
+- phillipine mythology
+- prehistoric mythology
+- african mythology
+- persian mythology
+- Celtic mythology
+- scottish mythology
+- slavic mythology
+- Armenian mythology
+- welsh mythology
+- hittite mythology
+- anglo-saxon mythology
+- Estonian Mythology
+- lithuanian mythology
+- sumerian mythology
+- Ainu mythology
+- canaaite mythology
+- mapuche mythology
+- Ecresian Mythology (self made for fiction)
+[Art&Culture](https://icebergcharts.com/c/Art&Culture)
+#  [American Folklore Iceberg](https://icebergcharts.com/i/American_Folklore) 📋
+  [
+](https://reddit.com/submit/?url=https%3A%2F%2Ficebergcharts.com%2Fi%2FAmerican_Folklore&resubmit=true&title=American%20Folklore%20Iceberg%20Chart) [
+](https://mastodon.social/share?text=American%20Folklore%20Iceberg%20Chart&url=https%3A%2F%2Ficebergcharts.com%2Fi%2FAmerican_Folklore) [
+](https://icebergcharts.com/i/American_Folklore/image)
+#  proposals wanted
+This iceberg is meant for the folklore of America. A large amount of the entries are paranormal in nature but that was not on purpose, just that a lot of them fit my criteria while researching for this iceberg.
+ParanormalLegend or StoryPerson (real or not)EventSuperstition
+Partially true PTReal event/person TWidespread *Alabama ALAlaska AKArizona AZArkansas ARCalifornia CAColorado COFlorida FLIdaho IDIllinois ILIndiana INIowa IAKansas KSKentucky KYLouisiana LAMaryland MDMinnesota MNMissouri MOMontana MTNew Jersey NJNew York NYNorth Dakota NDOhio OHPennsylvania PASouth Dakota SDTennessee TNTexas TXVirginia VAWest Virginia WVWisconsin WIWyoming WYNebraska NEOklahoma OKNew Mexico NMMassachusetts MAMaine MEMichigan MIHawaii HIUtah UTOregon ORNevada NVWashington WAMississippi MSGeorgia GASouth Carolina SCNorth Carolina NCConnecticut CTRhode Island RIVermont VTNew Hampshire NHWashington DC DCDelaware DE
+- [Paul Bunyan*](https://en.wikipedia.org/wiki/Paul_Bunyan)
+- [Jackelope* WY SD MN WI](https://en.wikipedia.org/wiki/Jackalope)
+- [Uncle Sam*](https://en.wikipedia.org/wiki/Uncle_Sam)
+- [Johnny AppleseedPA WV OH IN IL](https://en.wikipedia.org/wiki/Johnny_Appleseed)
+- [Buffalo BillPT IA KS CO](https://en.wikipedia.org/wiki/Buffalo_Bill)
+- [Davy CrockettT TX](https://en.wikipedia.org/wiki/Davy_Crockett)
+- [John HenryWV](https://en.wikipedia.org/wiki/John_Henry_\(folklore\))
+- [Rip Van WinkleNY](https://en.wikipedia.org/wiki/Rip_Van_Winkle)
+- [Fountain of YouthFL](https://en.wikipedia.org/wiki/Fountain_of_Youth)
+- [Bigfoot*](https://en.wikipedia.org/wiki/Bigfoot)
+- [Sleepy HollowNY](https://en.wikipedia.org/wiki/The_Legend_of_Sleepy_Hollow)
+- [Jesse JamesT MO KS IA TX WV](https://en.wikipedia.org/wiki/Jesse_James)
+- [Wendigo* MN](https://en.wikipedia.org/wiki/Wendigo)
+- [Billy the KidT NM AZ](https://en.wikipedia.org/wiki/Billy_the_Kid)
+- [Salem Witch TrialsT MA](https://en.wikipedia.org/wiki/Salem_witch_trials)
+- [Sewer Alligators* NY FL](https://en.wikipedia.org/wiki/Sewer_alligator)
+- [The Devil Went Down to GeorgiaGA](https://en.wikipedia.org/wiki/The_Devil_Went_Down_to_Georgia)
+- [Borden Axe MurdersT MA](https://en.wikipedia.org/wiki/Lizzie_Borden)
+- [Villisca Axe MurdersT IA](https://en.wikipedia.org/wiki/Villisca_axe_murders)
+- [The Baby Train*](https://en.wikipedia.org/wiki/Baby_Train)
+- [Shootout at the O.K. CorralT AZ](https://en.wikipedia.org/wiki/Gunfight_at_the_O.K._Corral)
+- [PocahontasPT VA](https://en.wikipedia.org/wiki/Pocahontas)
+- [Rabbits foot*](https://en.wikipedia.org/wiki/Rabbit%27s_foot)
+- [Betsy RossT NJ PA](https://en.wikipedia.org/wiki/Betsy_Ross)
+- [SacagaweaT ND SD ID MT](https://en.wikipedia.org/wiki/Sacagawea)
+- [Groundhog DayPA](https://en.wikipedia.org/wiki/Groundhog_Day)
+- [Bonnie and ClydeT LA TX OK KS IA MO](https://en.wikipedia.org/wiki/Bonnie_and_Clyde)
+- Black DahliaT CA
+- The Black MailbodNV
+- [GeronimoT AZ](https://en.wikipedia.org/wiki/Geronimo)
+- [Daniel BoonePT KY](https://en.wikipedia.org/wiki/Daniel_Boone)
+- [Hidebehind*](https://en.wikipedia.org/wiki/Hidebehind)
+- [Jersey DevilNJ](https://en.wikipedia.org/wiki/Jersey_Devil)
+- [Wampus Cat*](https://en.wikipedia.org/wiki/Wampus_cat)
+- [SquonkPA](https://en.wikipedia.org/wiki/Squonk)
+- [DungavenhooterMI ME](https://en.wikipedia.org/wiki/Dungavenhooter)
+- [La LloronaCA TX AZ NM](https://en.wikipedia.org/wiki/La_Llorona)
+- [Ichabod CraneNY](https://en.wikipedia.org/wiki/Ichabod_Crane)
+- [Pecos Bill*](https://en.wikipedia.org/wiki/Pecos_Bill)
+- [Evangeline*](https://en.wikipedia.org/wiki/Evangeline)
+- [Confederate GoldPT *](https://en.wikipedia.org/wiki/Confederate_gold)
+- [MothmanWV](https://en.wikipedia.org/wiki/Mothman)
+- [Minnehaha*](https://en.wikipedia.org/wiki/Minnehaha)
+- [Mary CelestePT NY](https://en.wikipedia.org/wiki/Mary_Celeste)
+- [BlackbeardT NC](https://en.wikipedia.org/wiki/Blackbeard)
+- [Clementine*](https://en.wikipedia.org/wiki/Oh_My_Darling,_Clementine)
+- [Skunk ApeFL](https://en.wikipedia.org/wiki/Skunk_ape)
+- [Wild Bill HickokT KS SD NE](https://en.wikipedia.org/wiki/Wild_Bill_Hickok)
+- [Doc HollidayT AZ NM](https://en.wikipedia.org/wiki/Doc_Holliday)
+- [Hatfields and the McCoysT WV KY](https://en.wikipedia.org/wiki/Hatfield%E2%80%93McCoy_feud)
+- [Amityville HorrorPT NY](https://en.wikipedia.org/wiki/Ronald_DeFeo_Jr.)
+- [Crybaby Bridges*](https://en.wikipedia.org/wiki/Crybaby_Bridge)
+- [Beast of Bray RoadWI](https://en.wikipedia.org/wiki/Beast_of_Bray_Road)
+- [Black Dog*](https://en.wikipedia.org/wiki/Black_dog_\(folklore\))
+- [Dover DemonMA](https://en.wikipedia.org/wiki/Dover_Demon)
+- [Flatwood MonsterWV](https://en.wikipedia.org/wiki/Flatwoods_monster)
+- [Bunny ManVA](https://en.wikipedia.org/wiki/Bunny_Man)
+- [Vikings in MinnesotaMN](https://en.wikipedia.org/wiki/Kensington_Runestone)
+- [Mount Washington Hotel HauntingsNH](https://en.wikipedia.org/wiki/Mount_Washington_Hotel)
+- [AnnabellePT](https://en.wikipedia.org/wiki/Annabelle_\(doll\))
+- [Winchester Mystery HouseT CA](https://en.wikipedia.org/wiki/Winchester_Mystery_House)
+- [Calamity JanePT SD](https://en.wikipedia.org/wiki/Calamity_Jane)
+- [Lost Colony of RoanokeT NC](https://en.wikipedia.org/wiki/Roanoke_Colony)
+- [Rosie the Riveter*](https://en.wikipedia.org/wiki/Rosie_the_Riveter)
+- [Smokey Bear*](https://en.wikipedia.org/wiki/Smokey_Bear)
+- Axeman of New OrleandsT LA
+- [Molly PitcherPT NJ](https://en.wikipedia.org/wiki/Molly_Pitcher)
+- [HodagWI](https://en.wikipedia.org/wiki/Hodag)
+- [Hoop Snake*](https://en.wikipedia.org/wiki/Hoop_snake)
+- [Cactus CatAZ](https://en.wikipedia.org/wiki/Cactus_cat)
+- [Uncle Remus*](https://en.wikipedia.org/wiki/Uncle_Remus)
+- [Red GhostAZ](https://en.wikipedia.org/wiki/Red_Ghost_\(folklore\))
+- [White House GhostDC](https://en.wikipedia.org/wiki/Lincoln%27s_ghost)
+- [GoatmanTX](https://en.wikipedia.org/wiki/Goatman_\(urban_legend\))
+- [Lost Dutchmans Gold MineAZ](https://en.wikipedia.org/wiki/Lost_Dutchman%27s_Gold_Mine)
+- [Mudhouse MansionOH](https://en.wikipedia.org/wiki/Mudhouse_Mansion)
+- [John Wesley HardinT TX KS](https://en.wikipedia.org/wiki/John_Wesley_Hardin)
+- [ThunderbirdWA OR ID](https://en.wikipedia.org/wiki/Thunderbird_\(mythology\))
+- [Black-eyed ChildrenTX](https://en.wikipedia.org/wiki/Black-eyed_children)
+- [Greenbrier GhostWV](https://en.wikipedia.org/wiki/Greenbrier_Ghost)
+- [ChampNY VT](https://en.wikipedia.org/wiki/Champ_\(folklore\))
+- [ChessieMD](https://en.wikipedia.org/wiki/Chessie_\(sea_monster\))
+- [ChupacabraNM CA TX](https://en.wikipedia.org/wiki/Chupacabra)
+- [SkinwalkersCO CA AZ NM](https://en.wikipedia.org/wiki/Skin-walker)
+- [Brown Mountain LightsNC](https://en.wikipedia.org/wiki/Brown_Mountain_lights)
+- [LeathermanT NY CT](https://en.wikipedia.org/wiki/Leatherman_\(vagabond\))
+- [John "Grizzly" AdamsPT CA](https://en.wikipedia.org/wiki/John_%22Grizzly%22_Adams)
+- [Emperor NortonT CA](https://en.wikipedia.org/wiki/Emperor_Norton)
+- [Cecil Hotel LegendsPT CA](https://en.wikipedia.org/wiki/Cecil_Hotel_\(Los_Angeles\))
+- [Black Star CanyonCA](https://en.wikipedia.org/wiki/Black_Star_Canyon)
+- [Frank EatonT](https://en.wikipedia.org/wiki/Frank_Eaton)
+- [Annie OakleyT](https://en.wikipedia.org/wiki/Annie_Oakley)
+- [Lone Ranger*](https://en.wikipedia.org/wiki/Lone_Ranger)
+- [Captain KiddPT](https://en.wikipedia.org/wiki/William_Kidd)
+- [CropseyPT NY](https://en.wikipedia.org/wiki/Cropsey_\(film\))
+- Laurel Canyon legendsPT CA
+- [Ball-tailed CatOR WA](https://en.wikipedia.org/wiki/Ball-tailed_cat)
+- [SplintercatOR WA](https://en.wikipedia.org/wiki/Splintercat)
+- [Axehandle HoundMN WI](https://en.wikipedia.org/wiki/Axehandle_hound)
+- [Br'er Rabbit*](https://en.wikipedia.org/wiki/Br%27er_Rabbit)
+- [TeakettlerMN WI](https://en.wikipedia.org/wiki/Teakettler)
+- [Snipe*](https://en.wikipedia.org/wiki/Snipe_hunt)
+- [SnallygasterMD](https://en.wikipedia.org/wiki/Snallygaster)
+- [Fur-bearing TroutMT](https://en.wikipedia.org/wiki/Fur-bearing_trout)
+- [Belled BuzzardTN NC VA TX MS](https://en.wikipedia.org/wiki/Belled_buzzard)
+- [Bell WitchTN](https://en.wikipedia.org/wiki/Bell_Witch)
+- [Bloodstopping*](https://en.wikipedia.org/wiki/Bloodstopping)
+- [Joaquin MurrietaCA](https://en.wikipedia.org/wiki/Joaquin_Murrieta)
+- [Muhlenberg legend*](https://en.wikipedia.org/wiki/Muhlenberg_legend)
+- [Lady FeatherflightMA](https://en.wikipedia.org/wiki/Lady_Featherflight)
+- [King KellyT IL MA](https://en.wikipedia.org/wiki/King_Kelly)
+- [Canada Bill JonesT](https://en.wikipedia.org/wiki/Canada_Bill_Jones)
+- [Honey Island Swamp MonsterLA](https://en.wikipedia.org/wiki/Honey_Island_Swamp_monster)
+- [Witch WindowsVT](https://en.wikipedia.org/wiki/Witch_window)
+- [Robert the DollFL](https://en.wikipedia.org/wiki/Robert_\(doll\))
+- [Peter RuggMA CT RI VT NH](https://en.wikipedia.org/wiki/Peter_Rugg)
+- [Vanishing Hotel Room*](https://en.wikipedia.org/wiki/Vanishing_Hotel_Room)
+- [Saratoga WitchPT NY](https://en.wikipedia.org/wiki/The_Witch_of_Saratoga)
+- [The Babysitter *](https://en.wikipedia.org/wiki/The_babysitter_and_the_man_upstairs)
+- [Mount Shasta LegendsCA](https://en.wikipedia.org/wiki/Legends_of_Mount_Shasta)
+- [Resurrection MaryIL](https://en.wikipedia.org/wiki/Resurrection_Mary)
+- [Devils Tramping GroundsNC](https://en.wikipedia.org/wiki/Devil%27s_Tramping_Ground)
+- [Scape Ore Swamp MonsterSC](https://en.wikipedia.org/wiki/Lizard_Man_of_Scape_Ore_Swamp)
+- [Murder KrogerPT](https://en.wikipedia.org/wiki/Murder_Kroger)
+- [John the ConquerorAL AR MS](https://en.wikipedia.org/wiki/John_the_Conqueror)
+- [Don Pedro JaramilloT TX](https://en.wikipedia.org/wiki/Don_Pedro_Jaramillo)
+- [Bigfoot WallaceT TX](https://en.wikipedia.org/wiki/William_A._A._Wallace)
+- [Meshach BrowningT MD](https://en.wikipedia.org/wiki/Meshach_Browning)
+- [The Wizard of the South MountainPT](https://en.wikipedia.org/wiki/Michael_Zittle_Jr.)
+- [Maryland Witch TrialsPT MD](https://en.wikipedia.org/wiki/Maryland_Witch_Trials)
+- [The Pennsylvania HermitPA](https://en.wikipedia.org/wiki/William_%22Amos%22_Wilson)
+- [Skeleton Canyon TreasureNM](https://en.wikipedia.org/wiki/Skeleton_Canyon_treasure)
+- [Jack SwillingT AZ](https://en.wikipedia.org/wiki/Jack_Swilling)
+- [Battle of the FrogsPT CT](https://en.wikipedia.org/wiki/Battle_of_the_Frogs)
+- [Devils TowerWY](https://en.wikipedia.org/wiki/Devils_Tower)
+- [Peg Leg JoeAL](https://en.wikipedia.org/wiki/Peg_Leg_Joe)
+- [George SpeckT NY](https://en.wikipedia.org/wiki/George_Speck)
+- [Bridgewater TriangleMA](https://en.wikipedia.org/wiki/Bridgewater_Triangle)
+- [Robert JohnsonPT](https://en.wikipedia.org/wiki/Robert_Johnson)
+- Skinned TomTN
+- [Gettysburg HauntingsPA](https://www.travelchannel.com/interests/history/articles/ghosts-of-gettysburg)
+- [Gumberoo*](https://en.wikipedia.org/wiki/Gumberoo)
+- [Goofus Bird*](https://en.wikipedia.org/wiki/Goofus_bird)
+- [Sam HideCT RI MA ME VT NH](https://en.wikipedia.org/wiki/Sam_Hide)
+- [Agropelter*](https://en.wikipedia.org/wiki/Agropelter)
+- [HugagMN WI](https://en.wikipedia.org/wiki/Hugag)
+- [Sidehill Gouger*](https://en.wikipedia.org/wiki/Sidehill_gouger)
+- [GillygalooNY NH VT MN WI MI](https://en.wikipedia.org/wiki/Gillygaloo)
+- [Mose HumphreyT NY](https://en.wikipedia.org/wiki/Mose_Humphrey)
+- [Kemp MorganTX OK](https://en.wikipedia.org/wiki/Kemp_Morgan)
+- [Tony BeaverWV](https://en.wikipedia.org/wiki/Tony_Beaver)
+- [Seven Cities of GoldNM](https://en.wikipedia.org/wiki/Seven_Cities_of_Gold)
+- [Night DoctorsPT](https://en.wikipedia.org/wiki/Night_Doctors)
+- [Mercy BrownRI](https://en.wikipedia.org/wiki/Mercy_Brown_vampire_incident)
+- [Little Joe MonahanT ID](https://en.wikipedia.org/wiki/Little_Joe_Monahan)
+- [Jesse MerwinT NY](https://en.wikipedia.org/wiki/Jesse_Merwin)
+- [Josephine MeekerT CO](https://en.wikipedia.org/wiki/Josephine_Meeker)
+- [Joseph MeekT OR](https://en.wikipedia.org/wiki/Joseph_Meek)
+- [Joseph Nash McDowellPT MO KY](https://en.wikipedia.org/wiki/Joseph_Nash_McDowell)
+- [Lost Children of the AllegheniesPT](https://en.wikipedia.org/wiki/Lost_Children_of_the_Alleghenies)
+- [Long Tom's treasureAZ](https://en.wikipedia.org/wiki/Long_Tom%27s_treasure)
+- [Jim LeavyT AZ](https://en.wikipedia.org/wiki/Jim_Leavy)
+- [Jarbidge Stage RobberyT NV](https://en.wikipedia.org/wiki/Jarbidge_Stage_Robbery)
+- [James T. StaplesT AL](https://en.wikipedia.org/wiki/James_T._Staples)
+- [Peter FranciscoT VA SC](https://en.wikipedia.org/wiki/Peter_Francisco)
+- [Fouke MonsterAR](https://en.wikipedia.org/wiki/Fouke_Monster)
+- [Myrtles PlantationLA](https://en.wikipedia.org/wiki/Myrtles_Plantation)
+- [Alligator BaitAL LA MS FL](https://en.wikipedia.org/wiki/Alligator_bait)
+- [The Hook*](https://en.wikipedia.org/wiki/The_Hook)
+- [Unsinkable Molly BrownT NY](https://en.wikipedia.org/wiki/Margaret_Brown)
+- [Black AggieMD](https://en.wikipedia.org/wiki/Black_Aggie)
+- [Demon CatDC](https://en.wikipedia.org/wiki/Demon_Cat)
+- [Bill SketoePT AL](https://en.wikipedia.org/wiki/Bill_Sketoe)
+- [Green ManPT PA](https://en.wikipedia.org/wiki/Raymond_Robinson_\(Green_Man\))
+- [Nain RougeMI](https://en.wikipedia.org/wiki/Nain_Rouge)
+- [LeticheLA](https://en.wikipedia.org/wiki/Letiche)
+- [Sea WitchDE](https://en.wikipedia.org/wiki/Sea_Witch_\(Delaware\))
+- [Mary WebsterPT MA](https://en.wikipedia.org/wiki/Mary_Webster_\(alleged_witch\))
+- [José GasparFL](https://en.wikipedia.org/wiki/Jos%C3%A9_Gaspar)
+- [Richmond VampireVA](https://en.wikipedia.org/wiki/Richmond_Vampire)
+- [Rebecca FowlerPT MD](https://en.wikipedia.org/wiki/Rebecca_Fowler_\(alleged_witch\))
+- [Schiller Woods magic water pumpIL](https://en.wikipedia.org/wiki/Schiller_Woods_magic_water_pump)
+- [Philadelphia ExperimentPA](https://en.wikipedia.org/wiki/Philadelphia_Experiment)
+- [Gallus MagT](https://en.wikipedia.org/wiki/Gallus_Mag)
+- [Blackbird HillNE](https://en.wikipedia.org/wiki/Blackbird_Hill)
+- [Weeping WaterNE](https://en.wikipedia.org/wiki/Weeping_Water,_Nebraska)
+- [Cochise County CowboysPT](https://en.wikipedia.org/wiki/Cochise_County_Cowboys)
+- [Whales in the Great Salt LakeUT](https://www.themeateater.com/conservation/natural-history/fact-checker-were-whales-released-in-the-great-salt-lake)
+- [Peg Entwistle DeathPT CA](https://en.wikipedia.org/wiki/Peg_Entwistle)
+- [Clay AllisonT TX NM](https://en.wikipedia.org/wiki/Clay_Allison)
+- [Apache TearsAZ NM](https://en.wikipedia.org/wiki/Apache_tears)
+- [Phantly Roy Bean Jr.T TX](https://en.wikipedia.org/wiki/Roy_Bean)
+- [Samuel BradyT PA OH](https://en.wikipedia.org/wiki/Samuel_Brady)
+- [Buenaventura RiverPT UT CO](https://en.wikipedia.org/wiki/Buenaventura_River_\(legend\))
+- [Colonel PlugIL KY](https://en.wikipedia.org/wiki/Colonel_Plug)
+- [Jigger JohnsonT *](https://en.wikipedia.org/wiki/Jigger_Johnson)
+- [Various Hangman Trees*](https://en.wikipedia.org/wiki/Category:Individual_trees_in_the_United_States)
+- [I Still Love You Chicken FarmerT NH](https://www.atlasobscura.com/places/chicken-farmer-rock)
+- [Devils DenPA](https://en.wikipedia.org/wiki/Devil%27s_Den)
+- [General Wayne InnPT PA](https://en.wikipedia.org/wiki/General_Wayne_Inn)
+- [Diana of the DunesPT IN](https://en.wikipedia.org/wiki/Diana_of_the_Dunes)
+- [Devils Chair*](https://en.wikipedia.org/wiki/The_Devil%27s_Chair_\(urban_legend\))
+- [Frozen Hill PeopleVT](https://www.onlyinyourstate.com/vermont/frozen-hill-people-vt/)
+- [Hopkinsville GoblinsKY](https://en.wikipedia.org/wiki/Kelly%E2%80%93Hopkinsville_encounter)
+- [Elfego BacaT NM](https://en.wikipedia.org/wiki/Elfego_Baca)
+- [Casey JonesT MS](https://en.wikipedia.org/wiki/Casey_Jones)
+- [GlawackusCT](https://en.wikipedia.org/wiki/Glawackus)
+- [Windwagon SmithMO KS](https://en.wikipedia.org/wiki/Windwagon_Smith)
+- [Annie ChristmasLA](https://en.wikipedia.org/wiki/Annie_Christmas)
+- [Ole PeteFL](https://en.wikipedia.org/wiki/Ole_Pete)
+- [Joe MagaracPA OH IN](https://en.wikipedia.org/wiki/Joe_Magarac)
+- [Alfred Bulltop StormalongMA](https://en.wikipedia.org/wiki/Alfred_Bulltop_Stormalong)
+- [Johnny KawKS](https://en.wikipedia.org/wiki/Johnny_Kaw)
+- [Febold FeboldsonNE](https://en.wikipedia.org/wiki/Febold_Feboldson)
+- [Flying Africans*](https://en.wikipedia.org/wiki/Flying_Africans)
+- [Lost Ship of the DesertCA](https://en.wikipedia.org/wiki/Lost_Ship_of_the_Desert)
+- [Mogollon MonsterAZ](https://en.wikipedia.org/wiki/Mogollon_Monster)
+- [Loveland FrogOH](https://en.wikipedia.org/wiki/Loveland_frog)
+- [Swamp FoxT SC](https://en.wikipedia.org/wiki/Francis_Marion)
+- [Maco LightNC](https://en.wikipedia.org/wiki/Maco_light)
+- [The Gray ManSC](https://en.wikipedia.org/wiki/The_Gray_Man_\(ghost\))
+- [Reno GangT IN MO IA](https://en.wikipedia.org/wiki/Reno_Gang)
+- [Liver-Eating JohnsonT MT WY](https://en.wikipedia.org/wiki/Liver-Eating_Johnson)
+- [The Boy and the Wolves*](https://en.wikipedia.org/wiki/The_Boy_and_the_Wolves)
+- [ThundereggOR](https://en.wikipedia.org/wiki/Thunderegg)
+- [Salting a birds tail*](https://en.wikipedia.org/wiki/Salting_a_bird%27s_tail)
+- [Bear Lake MonsterID UT](https://en.wikipedia.org/wiki/Bear_Lake_monster)
+- [Dream MinePT UT](https://en.wikipedia.org/wiki/Dream_Mine)
+- HagothUT
+- [Agnes of GlasgowSC](https://en.wikipedia.org/wiki/Agnes_of_Glasgow)
+- [Niles Canyon GhostCA](https://en.wikipedia.org/wiki/Niles_Canyon_ghost)
+- [Ghost of Queen EstherPA](https://en.wikipedia.org/wiki/Ghost_of_Queen_Esther)
+- [Pearl BryanPT KY](https://en.wikipedia.org/wiki/Murder_of_Pearl_Bryan)
+- [Octoroon MistressLA](https://en.wikipedia.org/wiki/Haunting_of_the_Octoroon_Mistress)
+- [Kate MorganPT CA](https://en.wikipedia.org/wiki/Kate_Morgan)
+- [Bloody Bones*](https://en.wikipedia.org/wiki/Bloody_Bones)
+- [KipsyNY](https://en.wikipedia.org/wiki/Hudson_River_Monster)
+- [Two-toed TomAL FL](https://en.wikipedia.org/wiki/Two-Toed_Tom)
+- [Pope Lick MonsterKY](https://en.wikipedia.org/wiki/Pope_Lick_Monster)
+- [Howler (Ozarks)AR](https://en.wikipedia.org/wiki/Ozark_Howler)
+- [Melon headsOH MI](https://en.wikipedia.org/wiki/Melon_heads)
+- [Ludwig the BloodsuckerNY](https://en.wikipedia.org/wiki/Ludwig_the_Bloodsucker)
+- [Elizabeth KnappPT MA](https://en.wikipedia.org/wiki/Possession_of_Elizabeth_Knapp)
+- [SpearfingerTN NC](https://en.wikipedia.org/wiki/Spearfinger)
+- [Wakulla VolcanoFL](https://en.wikipedia.org/wiki/Wakulla_Volcano)
+- [Altamaha-haGA](https://en.wikipedia.org/wiki/Altamaha-ha)
+- [Eliza BattlePT AL](https://en.wikipedia.org/wiki/Eliza_Battle)
+- [Kate Shelley and the Midnight ExpressT IA](https://en.wikipedia.org/wiki/Kate_Shelley)
+- [Pierre ParrantPT MN](https://en.wikipedia.org/wiki/Pierre_Parrant)
+- [Victoria Peak TreasurePT NM](https://en.wikipedia.org/wiki/Victorio_Peak_treasure)
+- [Ocean Born MaryNH](https://en.wikipedia.org/wiki/Ocean_Born_Mary)
+- [Jonathan MoultonT NH](https://en.wikipedia.org/wiki/Jonathan_Moulton)
+- [Mary PartingtonT NE](https://en.wikipedia.org/wiki/Mary_Partington)
+- [Battleground GunfightT AZ](https://en.wikipedia.org/wiki/Battleground_Gunfight)
+- [Shootout in BensonT AZ](https://en.wikipedia.org/wiki/Shootout_in_Benson)
+- [Montezuma's treasureAZ NM](https://en.wikipedia.org/wiki/Montezuma%27s_treasure)
+- [Barnacle BillT CA](https://en.wikipedia.org/wiki/William_Bernard_\(sailor\))
+- [Boy Scout LaneWI](https://en.wikipedia.org/wiki/Boy_Scout_Lane)
+- [Charlotte and Dick GreenT CO](https://en.wikipedia.org/wiki/Charlotte_and_Dick_Green)
+- [Wenonah*](https://en.wikipedia.org/wiki/The_Song_of_Hiawatha)
+- [Seven Sisters OakLA](https://en.wikipedia.org/wiki/Seven_Sisters_Oak)
+- [Sacred OakPA](https://en.wikipedia.org/wiki/Sacred_Oak)
+- [Vulture CityAZ](https://en.wikipedia.org/wiki/Vulture_City,_Arizona)
+- [Big Moose LakePT NY](https://en.wikipedia.org/wiki/Big_Moose_Lake)
+- [Letchworth VillagePT NY](https://en.wikipedia.org/wiki/Letchworth_Village)
+- [Execution Rocks LightPT NY](https://en.wikipedia.org/wiki/Execution_Rocks_Light)
+- [Mike FinkT PA OH WV KY](https://en.wikipedia.org/wiki/Mike_Fink)
+- [Snow SnakeMI MN WI](https://en.wikipedia.org/wiki/Snow_snake_\(folklore\))
+- [Joint Snake*](https://en.wikipedia.org/wiki/Joint_snake)
+- [Casey at the Bat*](https://en.wikipedia.org/wiki/Casey_at_the_Bat)
+- [Brother JonathanRI CT NH VT MA](https://en.wikipedia.org/wiki/Brother_Jonathan_\(disambiguation\))
+- [Madstone*](https://en.wikipedia.org/wiki/Madstone_\(folklore\))
+- [TailypoNC VA TN WV](https://en.wikipedia.org/wiki/Tailypo)
+- [Little BritchesT OK](https://en.wikipedia.org/wiki/Little_Britches_\(outlaw\))
+- [The Bird that Spoke the TruthNM](https://en.wikipedia.org/wiki/The_Bird_that_Spoke_the_Truth_\(New_Mexican_folktale\))
+- [Whitebear WhittingtonVA NC AR TN](https://en.wikipedia.org/wiki/Whitebear_Whittington)
+- [Mel's HoleWA](https://en.wikipedia.org/wiki/Mel%27s_Hole)
+- [Quetzalcoatl (Mormonism)UT](https://www.mormonwiki.com/Quetzalcoatl)
+- [Joe BushOR](https://en.wikipedia.org/wiki/Joe_Bush_\(ghost\))
+- [Bragg LightTX](https://en.wikipedia.org/wiki/Light_of_Saratoga)
+- [Ridgeway GhostWI](https://en.wikipedia.org/wiki/Ridgeway_Ghost)
+- [Gloucester Sea SerpentMA](https://en.wikipedia.org/wiki/Gloucester_sea_serpent)
+- [Golden BearKS](https://en.wikipedia.org/wiki/Golden_Bear_\(legend\))
+- [Tuttle Bottoms MonsterIL](https://en.wikipedia.org/wiki/Tuttle_Bottoms_Monster)
+- [Milton LizardKY](https://en.wikipedia.org/wiki/Milton_lizard)
+- [Michigan DogmanMI](https://en.wikipedia.org/wiki/Michigan_Dogman)
+- [Moll DyerMD](https://en.wikipedia.org/wiki/Moll_Dyer)
+- [Virginia Witch TrialsT VA](https://en.wikipedia.org/wiki/Witch_trials_in_Virginia)
+- [Poplar HillNC](https://en.wikipedia.org/wiki/Poplar_Hill_Mansion)
+- [Witch of PungoT](https://en.wikipedia.org/wiki/Grace_Sherwood)
+- [Heikki LuntaMI](https://en.wikipedia.org/wiki/Heikki_Lunta)
+- [Bathtub Madonna*](https://en.wikipedia.org/wiki/Bathtub_Madonna)
+- [Mamie ThurmanT WV](https://en.wikipedia.org/wiki/Mamie_Thurman)
+- [Weston State Hospital LegendsWV](https://en.wikipedia.org/wiki/Trans-Allegheny_Lunatic_Asylum)
+- [Moodus noisesCT](https://en.wikipedia.org/wiki/Moodus,_Connecticut)
+- [Witch TreeMN](https://en.wikipedia.org/wiki/Witch_Tree)
+- [Corpse Light*](https://en.wikipedia.org/?title=Corpse_light&redirect=no)
+- Stull, KansasKS
+- [Momo the MonsterLA MO](https://en.wikipedia.org/wiki/Momo_the_Monster)
+- [Clell MillerT MN MO AR IA](https://en.wikipedia.org/wiki/Clell_Miller)
+- [Lost N****r MineTX](https://en.wikipedia.org/wiki/Lost_Nigger_Gold_Mine)
+- [Lost Doukhobor LedgeWA](https://en.wikipedia.org/wiki/Gold_Creek_\(Washington\))
+- [Iron Mountain BabyT MO](https://en.wikipedia.org/wiki/Iron_Mountain_Baby)
+- [Iron Mountain (Boat)PT TN AR MS](https://en.wikipedia.org/wiki/Iron_Mountain_\(riverboat\))
+- [Igbo LandingPT GA](https://en.wikipedia.org/wiki/Igbo_Landing)
+- [Tom HornT WY](https://en.wikipedia.org/wiki/Tom_Horn)
+- [Little CatskinKY](https://en.wikipedia.org/wiki/Little_Catskin)
+- [Black Witch*](https://en.wikipedia.org/wiki/Ascalapha_odorata)
+- [Pa'aoHI](https://en.wikipedia.org/wiki/Pa%CA%BBao)
+- [KaupeHI](https://en.wikipedia.org/wiki/Kaupe)
+- [NightmarchersHI](https://en.wikipedia.org/wiki/Nightmarchers)
+- [MenehuneHI](https://en.wikipedia.org/wiki/Menehune)
+- [Old BookIL](https://en.wikipedia.org/wiki/Old_Book_\(ghost\))
+- [Vivia ThomasOK](https://en.wikipedia.org/wiki/Vivia_Thomas)
+- [Thelma TaylorT OR](https://en.wikipedia.org/wiki/Murder_of_Thelma_Taylor)
+- [Minnie QuayMI](https://en.wikipedia.org/wiki/Minnie_Quay)
+- [Beaman MonsterMO](https://en.wikipedia.org/wiki/Beaman_Monster)
+- [Beast of BladenboroNC](https://en.wikipedia.org/wiki/Beast_of_Bladenboro)
+- [Beast of BuscoIN](https://en.wikipedia.org/wiki/Beast_of_Busco)
+- [Crichton LeprechaunAL](https://en.wikipedia.org/wiki/Crichton_Leprechaun)
+- [Dark WatchersCA](https://en.wikipedia.org/wiki/Dark_Watchers)
+- [Enfield MonsterIL](https://en.wikipedia.org/wiki/Enfield_Monster)
+- [Flathead Lake MonsterMT](https://en.wikipedia.org/wiki/Flathead_Lake_Monster)
+- WhiteyAR
+- Lake Worth MonsterTX
+- Jacques St. GermainLA
+- Cohoke LightVA
+- Wicked John and the DevilTN NC SC
+- Phantom Lovers of Dismal SwampVA NC
+- CahabaPT AL
+- Rocky Hill CastleAL
+- Mount Nebo CemetaryAL
+- Wild Man of the NavidadTX
+- Vishnu SpringsPT
+- Ramsey Cemetary LegendsIL
+- Janni's ChimneyWA
+- Telltale Lilac BushWV
+- Katherine CrossPT
+- Gore OrphanageOH
+- MoonvilleOH
+- Rock Island Railroad Wreck GhostsIL NE
+- Witch of Wilderness ParkNE
+- Hummel Park LegendsNE
+- NimerigarWY
+- Legend of Bragg MineCA
+- Lost Padre MineCA
+- Lost Gold LedgeWA
+- Black Dog of the Hanging HillsCT
+- New London Ledge LightCT
+- Cell Block 12PA
+- Hag of Pine StreetPA
+- Avon, IndianaIN
+- Bandage ManOR
+- Jarrell BettisAR
+- Iowa City Black AngelPT IA
+- The Candy LadyTX
+- Platte River Ghost ShipWY
+- Ghost boy of Clinton RoadNJ
+- HaunchyvilleWI
+- Haunted PillarGA
+- PukwudgiesDE
+- RougarouLA
+- Seven Gates of HellPA
+- St Clair's defeat skeletonOH
+- Rock Hollow TrailMO
+- Algiers Devil ManLA
+- [Slag Pile AnniePA](https://en.wikipedia.org/wiki/Slag_Pile_Annie)
+[  
+Art&Culture](https://icebergcharts.com/c/Art&Culture)
+#  [Canadian Folklore Iceberg](https://icebergcharts.com/i/Canadian_Folklore) 📋
+  [
+](https://reddit.com/submit/?url=https%3A%2F%2Ficebergcharts.com%2Fi%2FCanadian_Folklore&resubmit=true&title=Canadian%20Folklore%20Iceberg%20Chart) [
+](https://mastodon.social/share?text=Canadian%20Folklore%20Iceberg%20Chart&url=https%3A%2F%2Ficebergcharts.com%2Fi%2FCanadian_Folklore) [
+](https://icebergcharts.com/i/Canadian_Folklore/image)
+#  work in progress proposals wanted
+Alberta ABPrince Edward Island PEIBritish Columbia BCNova Scotia NSWidespread *Northwest Territories NWTQuebec QCNunavut NUOntario ONYukon YKSaskatchewan SKNewfoundland NLNew Brunswick NBManitoba MB
+- SasquatchBC
+- OgopogoBC
+- Oak Island CurseNS
+- Wendigo*
+- Laura SecordON
+- Headless ValleyNWT
+- SednaNU
+- Great Amherst MysteryNS
+- Banff Springs Hotel Ghost StoriesAB
+- Shag Harbour U.F.ONS
+- Ghost Ship of the Northumberland StraitPEI
+- Lost Lemon MineAB
+- Lost Mcleod MineNWT
+- The Flying CanoeQC
+- JeromeNS
+- Black HorseQC
+- JackoBC
+- Banff MermanAB
+- Swift Runner and the legend of Fort KentAB
+- Devils PlaygroundAB
+- The Miser GhostQC
+- Gibraltar Point LighthouseON
+- Curse Lighthouse of Bird RockQC
+- Big Joe MuffarawON
+- Cremation of Sam McGeeYK
+- Mad Trapper of Rat RiverNWT
+- ManipogoMB
+- MugwumpQC ON
+- John WareAB
+- Thetis Lake MonsterBC
+- Toronto Tunnel RunnerON
+- Golden SprucesBC
+- Old Yellow TopON
+- The Face in the OvenNB
+- Bluenose GhostsNS
+- Halifax Glove GuyNS
+- Mystery of the Shaking TentAB
+- The Witch of Port La JoyePEI
+- Vancouver Island Sea SerpentsBC
+- Ouija Legend of CobdaON
+- The Haunting of Barbe HallayQC
+- SS BannockburnON
+- Don't Whistle at NightBC
+- The Headless NunNB
+- Mystery BoomsNL
+- Shellbird Island TreasureNL
+- Beach CoffinsNL
+- White Buffalo Calf Woman*
+- Baldoon MysteryON
+- CaddyBC
+- Donald MorrisonQC
+- Dean HouseAB
+- The Man and the GiantNU
+- KinosooAB
+- Screaming TunnelON
+- The Empress HotelBC
+- Teazer Ghost ShipNS
+- Sable Island GhostsNS
+- The Battle of Pretty StreamPEI
+- WechugeAB
+- White Lady of Holland CovePEI
+- Brudenell Island GhostsPEI
+- Dead Mans Flats name originAB
+- Devils LakeBC
+- Dagg's DemonQC
+- Fire Spook of Caledonia MillsNS
+- White Lady of Thetis CoveBC
+- Le GriffonQC ON
+- Ghost Ship of ChaleurNB
+- Dungarvon WhooperNB
+- Thorgeir’s BullMB
+- White Horse of Yeo IslandON
+- MussieON
+- SelkieBC
+- SlumachBC
+- Grace HospitalAB
+- Walterdale PlayhouseAB
+- NorumbegaNL
+- Partridge Creek MonsterYK
+- MishipeshuON
+- Toronto Aerial JellyfishON
+- Francophone Goblin LoreQC
+- MatloxBC
+- PonikQC
+- Falcon Lake EncounterMB
+- St Andrews on the Red GhostsMB
+- Sasquatch CavesBC
+- Blue Ghost TunnelON
+- Golar MountainNS
+- Mineotta StonePEI
+- Kirk of St. James Bell RingersPEI
+- Les LutinesQC
+- The CorriveauQC
+- The Fox and the HammerON
+- Legend of DogribsNWT
+- The St. Louis LightSK
+- The Headless BrakemanBC
+- Medicine Hat Ghost TrainAB
+- Lady of the StairsON
+- Legend of Old Wives LakeSK
+- Ghost Village of Fort MacleodAB
+- The Ghost Woman of Akai’niskuiAB
+- The Hamilton and the ScourgeON
+- A Strange AdventureAB
+- Ghost of Watsons MillsON
+- Black Hole Harbour TreasureNS
+- Jack FiddlerON
+- Fort Whoop-up and Fort Standoff TalesAB
+- Rose LatulipeQC
+- MemphreQC
+- Pitt Lake's Lost Gold MineBC
+- Princess Theatre GhostAB
+- Fort Garry Hotel GhostMB
+- Garson InvadersON
+- Lac Wood ScreecherQC
+- Green Men of Steep Rock LakeON
+- Keenan Bridge Ghost NB
+- John Hopper’s Restless Gravestone NB
+- Mary-Ellen Spook FarmNS
+- Coleman FrogNB
+- The Hunchback of Point PrimPEI
+- Cape Wolfe FairiesPEI
+- Binstead ManorPEI
+- Okanagan GiantsBC
+- Fraser Canyon CannibalBC
+- La Bete a Grand’QueueQC
+- The Women no one would hangPEI
+- Loup-GarouQC
+- Dog people of SpuzzumBC
+- Te’atzanYK
+- Inland-DwellersNU
+- ChinenePEI
+- House on Bible HillNS
+- Violet GoglinON
+- Town under Sandbanks Provincial ParkON
+- Will-o’-the-Wisp of Lake SimcoeON
+- Wellington Ghost TrainPEI
+- Ghost of Parry SoundON
+- Lark Harbour Ghost ShipNL
+- Courtney Lake Time WarpBC
+- The Ghost of a Mud PuddleQC
+- Old Whitey and the Ghosts of the SS KamloopsON
+- Ghosts of AshcroftBC
+- Scenic Caves Ghost StoriesON
+- Ethyl B. SummerNB
+- Glenora TreasureON
+- Guy-An-Way and the Cannibalistic WomanON
+- The HowlerAB
+- Forster's lost mineBC
+- Jolly Jack's Lost MineBC
+- Bowman Arts Centre GhostAB
+- Charles Camsell HospitalAB
+- 8/51BC
+- Seal Island and the SS OttawaNS
+- Young TeazerNS
+- Forbidden PlateauBC
+- AmarokNU
+- IjirakNU
+- KigatilikNU
+- Canadian Albino SharkNB
+- Yukon Beaver EaterYK
+- Giant RavenBC
+- Dundas Island Black FlyBC
+- Ugly MermanON
+- TsinquawBC
+- SadieAB
+- Stiff-legged BearAB
+- Various Alberta River MonstersAB
+- La Chase GalerieQC
+- 1947 UFO CrazeAB ON BC
+- Devil MonkeysYK
+- The Residence GhostNB
+- Major Gilfrid Studholme’s TreasureNB
+- The Gray’s Island Ghost NB
+- Currie Mountain Treasure NB
+- Gail BenoitNS
+- Cy a MateurNS
+- Toonie LadyMB
+- Pitt Lake LizardBC
+- ChunucklasBC
+- "Big Jim" McDonaghAB
+- Cuthead Creek LegendAB
+- Deadman LakeAB
+- Lost Dutch Creek MineralsAB
+- Ghostpine Creek LegendAB
+- Ghost River name originAB
+- Seven PersonsAB
+- Hammer Hill StoryAB
+- Haunted Lakes LegendAB
+- The Hermit Lake HermitAB
+- Great fish of Legend LakeAB
+- Massacre ButteAB
+- Lake Minnewanka giant fish and name originAB
+- Owlseye name originAB
+- The Pangman MysteryAB
+- Captain ShottAB
+- Manitoba Legistlative Building built in accordance with the occultMB
+- Three Notes on a Fiddle NB
+- Lake Utopia Monster NB
+- Rebecca’s Concrete Grave NB
+- A Pirate Ghost on Grand Manan NB
+- Money Cove NB
+- NakaniNWT
+- Swallow Nest SuperstitionNS
+- Big Rock in Boularderie GullyNS
+- Phantom Funeral ProcessionsNS
+- Taibhs birdsNS
+- Lady in Grey (Tusket)NS
+- Devils Footprints in BeaverbankNS
+- Chebogue Marble LadyNS
+- Butterbox babiesNS
+- Eastern CougarsNS NB ON QC
+- Hermit of Gully LakeNS
+- MemeguayiwahkMB
+- Oak Hammock Marsh Nazi UFO BaseMB
+- AngeoaNU
+- AshuapsQC
+- AtchenQC
+- AtnanBC
+- Cheval MarinQC
+- ChristinaAB
+- CressieNL
+- DsonoquaBC
+- Duhamel U.F.O.AB

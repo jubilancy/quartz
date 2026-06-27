@@ -1,0 +1,24 @@
+---
+tags:
+  - garden
+  - iceberg
+---
+# solarpunk
+- [Minecraft (series)](https://en.wikipedia.org/wiki/Minecraft_\(franchise\) "While it doesn't have a canonical plot for the original game, but the main objective to use the envirnoment and mining tools to survive.")
+- [Pokémon (series)EG A](https://en.wikipedia.org/wiki/Pok%C3%A9mon_\(video_game_series\) "Throughout the whole franchise (except one spin-off AU), were the human society have zigzaged idea of what a Solarpunk utopia looks like.")
+- [Technological UtopianismFG](https://en.wikipedia.org/wiki/Technological_utopianism "The grand idea of several ecological-based ideologies to create an version of an future like this.")
+- [Wall-EEG](https://www.youtube.com/watch?v=hscu7cc1_2Y "According the credits, when the remaining return to earth, it gradully reverted back to pre-polluted state, along to form a Solarpunk-society.")
+- [Frutiger AeroA](https://aesthetics.fandom.com/wiki/Frutiger_Aero "Frutiger Aero is an solarpunk-like aesthetic that was prevalent from roughly 2004 to 2013, following the end of the Y2K era.")
+- [Overwatch (1)FG](https://en.wikipedia.org/wiki/Overwatch "Despite the original settings take places a post-Robot Uprising attempts, they're a few locations like Numbani, were it's a successful model african city, where both humans and robots can co-exist.")
+- [ZootopiaEG A](https://en.wikipedia.org/wiki/Zootopia "It's both name of the movie and location, where furries are trying their best of not a dystopic in the inside, socially.")
+- [Big Hero 6LG](https://en.wikipedia.org/wiki/Big_Hero_6_\(film\) "It's setting and later of the plot of the film, is solarpunk-like.")
+- [Star WarsEG A](https://en.wikipedia.org/wiki/Star_Wars "Regardless what version (Canon or Legends), they're planets that have civilizations that contain [proto-]solarpunk elements.")
+- ["Eat today, feed tomorrow"FG](https://www.youtube.com/watch?v=MS-sJQkr0H4 "Is a commerical made by Chobani, it shows a hypothetical progressive future.")
+- [EcotopiaEG A](https://en.wikipedia.org/wiki/Ecotopia "An alternative history book from the late 1970s, where the story's main location is actually what it self-described, despite the social problems it facing.")
+- [Beasts of the Southern WildT](https://en.wikipedia.org/wiki/Beasts_of_the_Southern_Wild "While the story portrays itself as a urban fantasy drama, due of the main character is a child. The does uses the punk part, when comes to its themes.")
+- [LunarpunkA T](https://aesthetics.fandom.com/wiki/Lunarpunk "An bizzaro daugther (an subgenre) of Solarpunk, where it ingrains both Wiccan-themes and pseudo-biopunk aesthetics.")
+- [Anno 2070FG A](https://en.wikipedia.org/wiki/Anno_2070 "An entry of the AnnoDomini series. Have an post-ecological disaster faction called Eden Initiative. Where their goal to build an solarpunk-like civilization.")
+- [DronersEG A](https://en.wikipedia.org/wiki/Droners "Their location and society contains Solarpunk-like elements and aesthetics, when it comes to the protagonist's home settlement.")
+- [Strange WorldFG](https://en.wikipedia.org/wiki/Strange_World_\(film\) "The upper part of their planet and all the character's geographical area is mostly Solarpunk-like society, but contain a some Dieselpunk elements.")
+- [The One (film)EG](https://en.wikipedia.org/wiki/The_One_\(2001_film\) "It's ending shows a solarpunk-like civilization, due of the actions of its story.")
+- [TechnogaianismA](https://en.wikipedia.org/wiki/Technogaianism "It's a lesser transhumanist ideology, that sound pretty much like this subgenre is.")

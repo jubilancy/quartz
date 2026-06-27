@@ -1,0 +1,243 @@
+# [Cataloging Charts and Graphs for Stats on LibraryThing](https://www.librarything.com/stats/etmr/cataloging#lt2_content)
+- [Overview](https://www.librarything.com/stats/etmr/overview)
+- [Books](https://www.librarything.com/stats/etmr/collections#)
+- [Cataloging](https://www.librarything.com/stats/etmr/cataloging)
+- [Reading Dates](https://www.librarything.com/stats/etmr/read)
+- [Ratings/Reviews](https://www.librarything.com/stats/etmr/ratingsreviews)
+- [Book Covers](https://www.librarything.com/stats/etmr/covers)
+- [Genres](https://www.librarything.com/stats/etmr/genre)
+- [Dewey Decimal](https://www.librarything.com/stats/etmr/ddc)
+- [Tag Cloud](https://www.librarything.com/stats/etmr/tagcloud)
+- [Tag Mirror](https://www.librarything.com/stats/etmr/tagmirror)
+- [Site vs. Member](https://www.librarything.com/stats/etmr/sitecompare)
+- [Controversial Books](https://www.librarything.com/stats/etmr/controversialbooks)
+- [Collections](https://www.librarything.com/stats/etmr/collections)
+- [Pages](https://www.librarything.com/stats/etmr/bypages)
+- [Time](https://www.librarything.com/stats/etmr/bytime)
+- [Collector](https://www.librarything.com/stats/etmr/collector)
+- [Authors](https://www.librarything.com/stats/etmr/collections#)
+- [Pictures](https://www.librarything.com/stats/etmr/authorgallery)
+- [Author Cloud](https://www.librarything.com/stats/etmr/authorcloud)
+- [Nationality](https://www.librarything.com/stats/etmr/nationality)
+- [Dead or Alive?](https://www.librarything.com/stats/etmr/deadoralive)
+- [Gender](https://www.librarything.com/stats/etmr/gender)
+- [Common Knowledge](https://www.librarything.com/stats/etmr/collections#)
+- [Series](https://www.librarything.com/stats/etmr/series)
+- [Lists](https://www.librarything.com/stats/etmr/lists)
+- [Awards](https://www.librarything.com/stats/etmr/awards)
+- [Characters](https://www.librarything.com/stats/etmr/characters)
+- [Places](https://www.librarything.com/stats/etmr/places)
+- [Events](https://www.librarything.com/stats/etmr/events)
+- [Related Movies](https://www.librarything.com/stats/etmr/movies)
+- [Social](https://www.librarything.com/stats/etmr/collections#)
+- [Talk and Groups](https://www.librarything.com/stats/etmr/social)
+- [Shared Books](https://www.librarything.com/stats/etmr/connections)
+- [Shared Groups](https://www.librarything.com/stats/etmr/connectionsgroups)
+- [Shared Authors](https://www.librarything.com/stats/etmr/authorconnections)
+- [Legacy Libraries](https://www.librarything.com/stats/etmr/legacy)
+- [Badges](https://www.librarything.com/stats/etmr/badges)
+- [Local](https://www.librarything.com/stats/etmr/local)
+- [TriviaThing](https://www.librarything.com/stats/etmr/trivia)
+- [Odds and Ends](https://www.librarything.com/stats/etmr/collections#)
+- [Tagmash](https://www.librarything.com/stats/etmr/tagmash)
+- [Vous et Nul Autre](https://www.librarything.com/stats/etmr/vousetnulautre)
+- [Work Duplicates](https://www.librarything.com/stats/etmr/workdups)
+- [Year in Review](https://www.librarything.com/stats/etmr/year)
+# to do
+- [ ] Expand watchlist to show all changes, not just the most recent
+- [ ] Hide minor edits from the watchlist
+- [ ] Hide bot edits from the watchlist
+- [ ] Hide my edits from the watchlist
+- [ ] Hide edits by anonymous users from the watchlist
+- [ ] Hide edits by logged in users from the watchlist
+- [ ] Reload the watchlist automatically whenever a filter is changed (JavaScript required)
+- [ ] Add pages and files I edit to my watchlist
+- [ ] Add pages and files I move to my watchlist
+- [ ] Add pages I create and files I upload to my watchlist
+- [ ] Add new files I upload to my watchlist
+# touchstones
+- https://www.librarything.com/tags/etmr
+- https://www.librarything.com/ngroups
+- https://www.librarything.com/ngroups/search/esoteric#lt2_content
+- https://www.librarything.com/home
+- https://www.librarything.com/catalog/etmr
+- https://www.librarything.com/addbooks
+- https://www.librarything.com/ngroups
+- https://www.librarything.com/talk
+- https://www.librarything.com/local
+- https://www.librarything.com/more
+- https://www.librarything.com/zeitgeist
+- https://www.librarycat.org/lib/etmr
+- https://www.librarything.com/profile/etmr
+- https://www.librarything.com/messages
+- https://www.librarything.com/notifications
+- https://www.librarything.com/ngroups/search/esoteric#
+- https://www.librarything.com/signout.php
+- https://www.librarything.com/settings/notifications
+- https://wiki.librarything.com/index.php/HelpThing:Ngroups_controller
+- https://www.librarything.com/ngroups/yourgroups
+- https://www.librarything.com/ngroups/largest
+- https://www.librarything.com/ngroups/newest
+- https://www.librarything.com/ngroups/tags
+- https://www.librarything.com/ngroups/languages
+- https://www.librarything.com/ngroups/misc
+- https://www.librarything.com/ngroups/3050/Common-Knowledge-WikiThing-HelpThing
+- https://www.librarything.com/ngroups/6064/Flash-Mob-Cataloging
+- https://www.librarything.com/ngroups/18541/TinyCat
+- https://www.librarything.com/ngroups/7280/The-Rabble-Discuss-Cabell-James-Branch-Cabell-c
+- https://www.librarything.com/ngroups/10514/Parapsychology
+- https://www.librarything.com/ngroups/579/Esoteric-G-R-Barr
+- https://www.librarything.com/ngroups/1765/Mystic-Readers
+- https://www.librarything.com/ngroups/916/Etiquette-and-Manners
+- https://www.librarything.com/ngroups/194/Nonduality
+- https://www.librarything.com/ngroups/3344/Commodity-Histories-Micro-Histories
+- https://www.librarything.com/
+- https://www.librarything.com/about
+- https://www.librarything.com/contact
+- https://www.librarything.com/privacy
+- https://blog.librarything.com/
+- https://wiki.librarything.com/
+- https://www.librarything.com/commonknowledge/
+- https://www.librarything.com/ner
+- https://www.librarything.com/legacylibraries
+- https://www.librarything.com/developer
+- https://www.librarycat.org/
+- [Export Options | LibraryThing](https://www.librarything.com/export.php)  
+- [MDS: Melvil Decimal System | LibraryThing](https://www.librarything.com/mds)  
+- [Early Reviewers | Available Now | LibraryThing](https://www.librarything.com/ner)  
+- [Developer Hub | LibraryThing](https://www.librarything.com/developer)  
+- [Help and FAQ - wiki.librarything.com](https://wiki.librarything.com/index.php/Help_and_FAQ)  
+- [Legacy Libraries | LibraryThing](https://www.librarything.com/legacylibraries)  
+- [Helpers | LibraryThing](https://www.librarything.com/zeitgeist/helpers)  
+- [More LibraryThing | LibraryThing](https://www.librarything.com/more/haiku)  
+- [Groups:Flash-Mob Cataloging - wiki.librarything.com](https://wiki.librarything.com/index.php/Groups:Flash-Mob_Cataloging)  
+- [Flash-Mob Cataloging | LibraryThing](https://www.librarything.com/ngroups/6064/Flash-Mob-Cataloging)  
+- [LibraryThing Search Widget Builder | LibraryThing](https://www.librarything.com/ltsw)  
+- [Graphical Widgets for LJ and etc. (first look) « The LibraryThing Blog](https://blog.librarything.com/2006/12/graphical-widgets-for-lj-and-etc-first-look/)  
+- [Signature Line | LibraryThing](https://www.librarything.com/signatureline.php)  
+- [More LibraryThing | LibraryThing](https://www.librarything.com/more/chicklets)  
+- [ProQuest-Syndetic Solutions](https://proquest.syndetics.com/)  
+- [Local | LibraryThing](https://www.librarything.com/local)  
+- [Common Knowledge | Weekly Data | LibraryThing](https://www.librarything.com/commonknowledge/)  
+- [Talpa Search | Talpa](https://www.talpasearch.com/)  
+- [eliana | TinyCat](https://www.librarycat.org/lib/etmr)  
+- [Google Password Manager](chrome://password-manager/passwords/litsy.com?q=litsy)
+- https://www.librarything.com/export.php
+- https://www.librarything.com/mds
+- https://www.librarything.com/ner
+- https://www.librarything.com/developer
+- https://wiki.librarything.com/index.php/Help_and_FAQ
+- https://www.librarything.com/legacylibraries
+- https://www.librarything.com/zeitgeist/helpers
+- https://www.librarything.com/more/haiku
+- https://wiki.librarything.com/index.php/Groups:Flash-Mob_Cataloging
+- https://www.librarything.com/ngroups/6064/Flash-Mob-Cataloging
+- https://www.librarything.com/ltsw
+- https://blog.librarything.com/2006/12/graphical-widgets-for-lj-and-etc-first-look/
+- https://www.librarything.com/signatureline.php
+- https://www.librarything.com/more/chicklets
+- https://proquest.syndetics.com/
+- https://www.librarything.com/local
+- https://www.librarything.com/commonknowledge/
+- https://www.talpasearch.com/
+- https://www.librarycat.org/lib/etmr
+- chrome://password-manager/passwords/litsy.com?q=litsy
+- [Home | LibraryThing](https://www.librarything.com/home)  
+- [MDS: 0XX | LibraryThing](https://www.librarything.com/mds/0XX)  
+- [Free Decimal Correspondence | Everybody's Libraries](https://everybodyslibraries.com/free-decimal-correspondence/)  
+- [how to sort your books by mds - Google Search](https://www.google.com/search?q=how+to+sort+your+books+by+mds&oq=how+to+sort+your+books+by+mds&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIHCAEQIRigATIHCAIQIRigATIHCAMQIRigATIHCAQQIRigATIHCAUQIRigATIHCAYQIRiPAtIBCDY4MTNqMGoxqAIAsAIA&sourceid=chrome&ie=UTF-8)  
+- [Fine Press Forum | LibraryThing](https://www.librarything.com/ngroups/3279/Fine-Press-Forum#)  
+- [Preferences - wiki.librarything.com](https://wiki.librarything.com/index.php/Special:Preferences)  
+- [wiki signature - Google Search](https://www.google.com/search?q=wiki++signature&sca_esv=7e23b67cda9c6a45&sxsrf=ANbL-n7KLv9So6jCp9zp-ECSXVqgIx0GSw%3A1770411165041&ei=nVSGafiLAqKk5NoP14udgQQ&biw=1470&bih=801&ved=0ahUKEwi4zuTE38WSAxUiElkFHddFJ0AQ4dUDCBM&uact=5&oq=wiki++signature&gs_lp=Egxnd3Mtd2l6LXNlcnAiD3dpa2kgIHNpZ25hdHVyZTIGEAAYBxgeMgYQABgHGB4yBhAAGAcYHjIGEAAYBxgeMgYQABgHGB4yBRAAGIAEMgQQABgeMgYQABgFGB4yBhAAGAUYHjIGEAAYBRgeSIkdUIkTWKMZcAF4AZABAJgBdqABzAOqAQM0LjG4AQPIAQD4AQGYAgWgAvECwgIKEAAYsAMY1gQYR5gDAIgGAZAGCJIHAzQuMaAHzh6yBwMzLjG4B-4CwgcFMC4yLjPIBxOACAA&sclient=gws-wiz-serp)  
+- [Wikipedia:Signatures - Wikipedia](https://en.wikipedia.org/wiki/Wikipedia:Signatures?useskin=vector#Customizing_how_everyone_sees_your_signature)  
+- [User:Basedgirl/common.css - Wikipedia](https://en.wikipedia.org/w/index.php?title=User:Basedgirl/common.css&useskin=vector)  
+- [Checking you're not a bot...](https://breezewiki.com/codepedia/wiki/Signature#:~:text=A_signature_is_a_piece,pages_should_not_be_signed.)  
+- [Checking you're not a bot...](https://breezewiki.com/community/wiki/Help:Signature)  
+- [Help:Signatures - MediaWiki](https://www.mediawiki.org/wiki/Help:Signatures)  
+- [Media and format definitions - wiki.librarything.com](https://wiki.librarything.com/index.php/Media_and_format_definitions)  
+- [The LibraryThing Media Taxonomy - wiki.librarything.com](https://wiki.librarything.com/index.php/The_LibraryThing_Media_Taxonomy)  
+- [User:Etmr - wiki.librarything.com](https://wiki.librarything.com/index.php/User:Etmr)  
+- [Tag combining - wiki.librarything.com](https://wiki.librarything.com/index.php/Tag_combining)  
+- [Music and movie cataloging (but we’re still a book site) « The LibraryThing Blog](https://blog.librarything.com/2015/09/music-and-movie-cataloging-but-were-still-a-book-site/)  
+- [Peter Pauper Press](https://www.peterpauper.com/)  
+- [how to download a wiki page - Google Search](https://www.google.com/search?q=how+to+download+a+wiki+page&oq=how+to+download+a+wiki+page&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIICAEQABgWGB4yCAgCEAAYFhgeMggIAxAAGBYYHjIICAQQABgWGB4yCAgFEAAYFhgeMggIBhAAGBYYHjINCAcQABiGAxiABBiKBTINCAgQABiGAxiABBiKBTINCAkQABiGAxiABBiKBdIBCDYxNzJqMGoxqAIAsAIA&sourceid=chrome&ie=UTF-8)  
+- [Wikimedia Downloads](https://dumps.wikimedia.org/)  
+- [Preferences - wiki.librarything.com](https://wiki.librarything.com/index.php/Special:Preferences#mw-prefsection-watchlist)  
+- [Edit watchlist - wiki.librarything.com](https://wiki.librarything.com/index.php/Special:EditWatchlist)  
+- [Edit raw watchlist - wiki.librarything.com](https://wiki.librarything.com/index.php/Special:EditWatchlist/raw)  
+- [what is a wiki watchlist - Google Search](https://www.google.com/search?q=what+is+a+wiki+watchlist&oq=what+is+a+wiki+watchlist&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIHCAEQIRigATIHCAIQIRigATIHCAMQIRigAdIBCDQ1NDZqMGoxqAIAsAIA&sourceid=chrome&ie=UTF-8)
+## High use pages
+- [Most linked-to categories](https://wiki.librarything.com/index.php/Special:MostLinkedCategories "Special:MostLinkedCategories")
+- [Most linked-to files](https://wiki.librarything.com/index.php/Special:MostLinkedFiles "Special:MostLinkedFiles")
+- [Most linked-to pages](https://wiki.librarything.com/index.php/Special:MostLinkedPages "Special:MostLinkedPages")
+- [Most transcluded pages](https://wiki.librarything.com/index.php/Special:MostTranscludedPages "Special:MostTranscludedPages")
+- [Pages with the most categories](https://wiki.librarything.com/index.php/Special:MostCategories "Special:MostCategories")
+- [Pages with the most interwikis](https://wiki.librarything.com/index.php/Special:MostInterwikis "Special:MostInterwikis")
+- [Pages with the most revisions](https://wiki.librarything.com/index.php/Special:MostRevisions "Special:MostRevisions")
+## Page tools
+- [Change content model of a page](https://wiki.librarything.com/index.php/Special:ChangeContentModel "Special:ChangeContentModel")
+- [Compare pages](https://wiki.librarything.com/index.php/Special:ComparePages "Special:ComparePages")
+- [Export pages](https://wiki.librarything.com/index.php/Special:Export "Special:Export")
+- [What links here](https://wiki.librarything.com/index.php/Special:WhatLinksHere "Special:WhatLinksHere")
+## Legend
+- Normal special pages.
+- Restricted special pages.
+### **General Profile & Statistics**
+- [LibraryThing Profile](https://www.librarything.com/profile/etmr)
+- [Statistics Overview](https://www.librarything.com/stats/etmr/overview)
+- [Personal Photo Gallery](https://www.librarything.com/gallery/member/etmr)
+- [Book Reviews](https://www.librarything.com/reviews/etmr)
+- [Member Recommendations](https://www.librarything.com/profile/etmr/recommendations)
+- [Recommendations from Members](https://www.librarything.com/profile/etmr/recommendations/member)
+- [Member Authors](https://www.librarything.com/memberauthors/etmr)
+- [Member Series](https://www.librarything.com/memberseries/etmr)
+- [All Tags Cloud](https://www.librarything.com/tags/etmr)
+---
+### **Catalog & Collection Views**
+- [Full Catalog (Main)](https://www.librarything.com/catalog/etmr)
+- [All Collections (Combined)](https://www.librarything.com/catalog/etmr/allcollections)
+- [Your Library](https://www.librarything.com/catalog/etmr/yourlibrary)
+- [Read](https://www.librarything.com/catalog/etmr/read)
+- [To Read](https://www.librarything.com/catalog/etmr/toread)
+- [Currently Reading](https://www.librarything.com/catalog/etmr/currentlyreading)
+- [Wishlist](https://www.librarything.com/catalog/etmr/wishlist)
+- [Favorites](https://www.librarything.com/catalog/etmr/favorites)
+- [Read but Unowned](https://www.librarything.com/catalog/etmr/readbutunowned)
+- [Browsing View](https://www.librarything.com/catalog/etmr/browsing)
+- [New Additions](https://www.librarything.com/catalog/etmr/new)
+---
+### **Specific Named Collections**
+- [Eliana Collection](https://www.librarything.com/catalog/etmr/eliana)
+- [Luke Smith Library](https://www.librarything.com/catalog/etmr/lukesmithlibrary)
+- [Imported March 2026 Collection](https://www.librarything.com/catalog/etmr/importedmarch2026)
+---
+### **Import & Date Tags**
+- [Import (General)](https://www.librarything.com/catalog/etmr?tag=import&collection=-1)
+- [ISBN Import](https://www.librarything.com/catalog/etmr?tag=isbn-import&collection=-1)
+- [Amazon Import (April 14, 2026)](https://www.librarything.com/catalog/etmr?tag=amazon+import+april142026&collection=-1)
+- [Goodreads Imported List](https://www.librarything.com/catalog/etmr?tag=goodreads-imported-list&collection=-1)
+- [My Database (04-01-2026)](https://www.librarything.com/catalog/etmr?tag=mydatabase04012026&collection=-1)
+- [Imported April 2026](https://www.librarything.com/catalog/etmr?tag=imported-april-2026&collection=-1)
+- [Import March 26](https://www.librarything.com/catalog/etmr?tag=import-march-26&collection=-1)
+- [March 2026](https://www.librarything.com/catalog/etmr?tag=march-2026&collection=-1)
+- [February 2026](https://www.librarything.com/catalog/etmr?tag=february+2026&collection=-1)
+- [Feb 22](https://www.librarything.com/catalog/etmr?tag=feb22&collection=-1)
+- [ISBNs Jan 17](https://www.librarything.com/catalog/etmr?tag=isbns-jan17&collection=-1)
+- [New Jan 17](https://www.librarything.com/catalog/etmr?tag=new-jan17&collection=-1)
+- [ISBNs Jan 25](https://www.librarything.com/catalog/etmr?tag=isbns-jan25&collection=-1)
+---
+### **Subject & Series Tags**
+- [Black Authors](https://www.librarything.com/catalog/etmr?tag=black-authors&collection=-1)
+- [Fiction](https://www.librarything.com/catalog/etmr?tag=fiction&collection=-1)
+- [Sci-Fi Fiction](https://www.librarything.com/catalog/etmr?tag=fiction+scifi&collection=-1)
+- [Nonfiction Marketing](https://www.librarything.com/catalog/etmr?tag=nonfiction+marketing&collection=-1)
+- [Esoteric](https://www.librarything.com/catalog/etmr?tag=esoteric&collection=-1)
+- [Library of Esoterica](https://www.librarything.com/catalog/etmr?tag=library+of+esoterica&collection=-1)
+- [Little Black Classics Box Set](https://www.librarything.com/catalog/etmr?tag=The+Little+Black+Classics+Box+Set&collection=-1)
+- [100 Great 20th Century Fiction by Women](https://www.librarything.com/catalog/etmr?tag=100+Great+20th+Century+Works+of+Fiction+by+Women&collection=-1)
+- [Edith Hall](https://www.librarything.com/catalog/etmr?tag=edithhall&collection=-1)
+- [Theoi.com Bibliography](https://www.librarything.com/catalog/etmr?tag=theoi.com%2Fbibliography&collection=-1)
+- [Oakcrest](https://www.librarything.com/catalog/etmr?tag=oakcrest&collection=-1)
+- [To-Read (Tag Version)](https://www.librarything.com/catalog/etmr?tag=to-read&collection=-1)
+- [Currently-Reading (Tag Version)](https://www.librarything.com/catalog/etmr?tag=currently-reading&collection=-1)
+- [Test Tag](https://www.librarything.com/catalog/etmr?tag=test&collection=-1)

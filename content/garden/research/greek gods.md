@@ -1,0 +1,189 @@
+---
+tags:
+  - garden
+  - iceberg
+---
+- [Adephagia](https://en.wikipedia.org/wiki/Adephagia "Adephagia (/ædiˈfeɪdʒiə/,[1] Ancient Greek: Ἀδηφαγία) in Greek mythology was the goddess and personification of gluttony.")
+- [Adikia](https://en.wikipedia.org/wiki/Adikia "In Greek mythology, Adicia or Adikia (Ἀδικία) was the goddess and personification of injustice and wrong-doing.[1]")
+- [Aergia](https://en.wikipedia.org/wiki/Aergia "In Greek mythology, Aergia (/eɪˈɜrdʒə/; Ancient Greek: Ἀεργία, 'inactivity')[1] is the personification of sloth, idleness, indolence and laziness. She is the translation of the Latin Socordia, or Ignavia: the name was translated into Greek because Hyginus mentioned her being based on a Greek source, and thus she can be considered as both a Greek and Roman goddess. Aergia's opposite character is Horme, a goddess of effort.")
+- [Agon](https://en.wikipedia.org/wiki/Agon "Agon (Greek ἀγών) is a Greek term for a conflict, struggle or contest. This could be a contest in athletics, in chariot or horse racing, or in music or literature at a public festival in ancient Greece. Agon is the word-forming element in 'agony', explaining the concept of agon(y) in tragedy by its fundamental characters, the protagonist and antagonist.")
+- [Aphrodite](https://www.worldhistory.org/Aphrodite/#:~:text=Aphrodite%20was%20the%20ancient%20Greek,of%20the%20sky%20god%20Uranus. "APHRODITE was the Olympian goddess of love, beauty, pleasure and procreation. She was depicted as a beautiful woman often accompanied by the winged godling Eros (Love). Her attributes included a dove, apple, scallop shell and mirror.")
+- [Apollo](https://en.wikipedia.org/wiki/Apollo "God of music, arts, knowledge, healing, plague, prophecy, poetry, manly beauty, and archery. He is the son of Zeus and Leto, and the twin brother of Artemis. Both Apollo and Artemis use a bow and arrow. Apollo is depicted as young, beardless, handsome and athletic. In myth, he can be cruel and destructive, and his love affairs are rarely happy. He is often accompanied by the Muses. His most famous temple is in Delphi, where he established his oracular shrine. His signs and symbols include the laurel wreath, bow and arrow, and lyre. His sacred animals include roe deer, swans, and pythons. Some late Roman and Greek poetry and mythography identifies him as a sun-god, equivalent to Roman Sol and Greek Helios")
+- [Ares](https://en.wikipedia.org/wiki/Ares "God of courage, war, bloodshed, and violence. The son of Zeus and Hera, he was depicted as a beardless youth, either nude with a helmet and spear or sword, or as an armed warrior. Homer portrays him as moody and unreliable, and as being the most unpopular god on earth and Olympus (Iliad 5.890–1). He generally represents the chaos of war in contrast to Athena, a goddess of military strategy and skill. Ares is known for cuckolding his brother Hephaestus, conducting an affair with his wife Aphrodite. His sacred animals include vultures, venomous snakes, dogs, and boars. His Roman counterpart Mars by contrast was regarded as the dignified ancestor of the Roman people.[3]")
+- [Artemis](https://www.britannica.com/topic/Artemis-Greek-goddess "Artemis, in Greek religion, the goddess of wild animals, the hunt, and vegetation and of chastity and childbirth; she was identified by the Romans with Diana. Artemis was the daughter of Zeus and Leto and the twin sister of Apollo.")
+- [Koalemos](https://en.wikipedia.org/wiki/Koalemos "In Greek mythology, Koalemos (Ancient Greek: Κοάλεμος) was the personification of stupidity, mentioned once by Aristophanes,[1] and being found also in Parallel Lives by Plutarch.[2] Coalemus is the Latin spelling of the name.")
+- [Prometheus](https://en.wikipedia.org/wiki/Prometheus#:~:text=Prometheus%20is%20best%20known%20for,kylix%2C%20560%2D550%20BC\) "Prometheus is best known for defying the Olympian gods by taking fire from them and giving it to humanity in the form of technology, knowledge and, more generally, civilization. Prometheus. God of forethought, fire, and crafty counsel. Prometheus tortured by the eagle. (black-figure kylix, 560-550 BC)")
+- [The Laestrygonians](https://en.wikipedia.org/wiki/Laestrygonians "In Greek mythology, the Laestrygonians /ˌlɛstrɪˈɡoʊniənz/ or Laestrygones /lɛˈstrɪɡəˌniːz/[1] (Greek: Λαιστρυγόνες) were a tribe of man-eating giants. They were said to have sprung from Laestrygon, son of Poseidon.[2]  According to Thucydides (6.2.1.) and Polybius (1.2.9) the Laestrygones inhabited southeast Sicily. The name is akin to that of the Lestriconi, a branch of the Corsi people of the northeast coast of Sardinia (now Gallura).")
+- Achlys
+- Achos
+- Aether
+- Agathodaemon
+- Aidos
+- Aion
+- Aisa
+- Alala
+- Alastor
+- Alcyoneus
+- Aletheia
+- Alke
+- Aloadae
+- Amechania
+- Anaideia
+- Ananke
+- Anax
+- Angelia
+- Ania
+- Antaeus
+- Anteros
+- Antiphates
+- Anytos
+- Apate
+- Apheleia
+- Arete
+- Arges
+- Argus Panoptes
+- Asteria
+- Asterius
+- Astraeus
+- Atë
+- Athena
+- Atlas
+- Bia
+- Briareus
+- Brontes
+- Cacus
+- Caerus
+- Chaos
+- Chronos
+- Chthonius
+- Coeus
+- Corus
+- Cottus
+- Crius
+- Cronus
+- Cyclopes
+- Damysus
+- Deimos
+- Demeter
+- Dikaiosyne
+- Dike
+- Dione
+- Dionysus
+- Dysnomia
+- Dyssebeia
+- Eirene
+- Eiresione
+- Ekecheiria
+- Eleos
+- Eleutheria
+- Elpis
+- Empusa
+- Enceladus
+- Epiales
+- Epimetheus
+- Epiphron
+- Erebus
+- Eris
+- Eros
+- Eucleia
+- Eulabeia
+- Eunomia
+- Eupheme
+- Eupraxia
+- Eusebeia
+- Euthenia
+- Gaia
+- Gegenees
+- Gelos
+- Geras
+- Geryon
+- Gyges
+- Hades
+- Harmonia
+- Hedone
+- Hedylogos
+- Heimarmene
+- Helios
+- Hemera
+- Hephaestus
+- Hera
+- Hermaphroditus
+- Hermes
+- Hestia
+- Hesychia
+- Himeros
+- Homados
+- Homonoia
+- Horkos
+- Horme
+- Hybris
+- Hymen
+- Hyperion
+- Hypnos
+- Iapetus
+- Ioke
+- Kairos
+- Kakia
+- Kallone
+- Kalokagathia
+- Kratos
+- Kydoimos
+- Lelantos
+- Lethe
+- Leto
+- Limos
+- Lupe
+- Lyssa
+- Mania
+- Menoetius
+- Metis
+- Mimas
+- Mnemosyne
+- Nyx
+- Oceanus
+- Orion
+- Otus
+- Pallas
+- Persephone
+- Perses
+- Phanes
+- Phoebe
+- Picolous
+- Polybotes
+- Polyphemus
+- Pontus
+- Porphyrion
+- Poseidon
+- Pothos
+- Rhea
+- Selene
+- Steropes
+- Styx
+- Syceus
+- Talos
+- Tartarus
+- Tethys
+- Thalassa
+- The Algea
+- The Amphilogiai
+- The Androktasiai
+- The Arae
+- The Erotes
+- The Hekatoncheires
+- The Hysminai
+- The Keres
+- The Litae
+- The Machai
+- The Moirai
+- The Nesoi
+- The Ourea
+- Theia
+- Themis
+- Thoas/Thoon
+- Titan
+- Tityos
+- Typhon
+- Uranus
+- Zeus
+
+

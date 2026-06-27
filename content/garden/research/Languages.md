@@ -1,0 +1,2872 @@
+## Languages with over 10,000,000 speakers (Large Country Languages)
+
+- Algerian Arabic
+- Amharic
+- Assamese
+- Awadhi
+- Bavarian
+- Bengali
+- Bhojpuri
+- Burmese
+- Catalan-Valencian-Balear
+- Cebuano
+- Chittagonian
+- Czech
+- Deccan
+- Dutch
+- Eastern Punjabi
+- Egyptian Arabic
+- English
+- Filipino
+- French
+- Fulah
+- Gan Chinese
+- German
+- Greek
+- Gujarati
+- Hakka Chinese
+- Hausa
+- Hejazi Arabic
+- Hindi
+- Hungarian
+- Igbo
+- Indonesian
+- Iranian Persian
+- Italian
+- Japanese
+- Javanese
+- Jin Chinese
+- Kannada
+- Khmer
+- Kinyarwanda
+- Korean
+- Lahdna
+- Magahi
+- Maithili
+- Malayalam
+- Malaysian
+- Mandarin Chinese
+- Marathi
+- Marwari
+- Mesopotamian Arabic
+- Min Bei Chinese
+- Min Dong Chinese
+- Min Nan Chinese
+- Moroccan Arabic
+- Nepali
+- Nigerian Fulfulde
+- North Levantine Arabic
+- Northern Kurdish
+- Northern Pashto
+- Northern Uzbek
+- Odia
+- Oriya
+- Oromo
+- Panjabi
+- Persian
+- Polish
+- Portuguese
+- Quechua
+- Romanian
+- Rundi
+- Russian
+- Sa'idi Arabic
+- Sanaani Spoken Arabic
+- Saraiki
+- Seraiki
+- Shona
+- Sindhi
+- Sinhalese
+- Somali
+- South Azerbaijani
+- South Levantine Arabic
+- Southern Pashto
+- Spanish
+- Sudanese Arabic
+- Sunda
+- Sylheti
+- Ta'izzi-Adeni Arabic
+- Tagalog
+- Tamil
+- Telugu
+- Thai
+- Tunisian Arabic
+- Turkish
+- Ukrainian
+- Urdu
+- Vietnamese
+- Western Punjabi
+- Wu Chinese
+- Xhosa
+- Xiang Chinese
+- Yoruba
+- Yue Chinese
+- Zulu
+- Scottish English
+- Irish English
+
+  
+
+## Languages with 10,000-100,000 speakers (Small Region Languages)
+
+- Abaza
+- Acheron
+- Achi'
+- Agul
+- Akatek (Guatemala)
+- Algherese Catalan
+- Alune
+- Aluo
+- Amba
+- Amis
+- Anal
+- Andi
+- Apatani
+- Aragonese
+- Arbëresh
+- Aruaco
+- Arvanitika
+- Ashaninka (Peru)
+- Ashtiani
+- Awajun
+- Badiaranke
+- Baheng (China)
+- Baima
+- Banat Bulgarian
+- Bandial
+- Bangani
+- Bangni
+- Bassari
+- Bateri
+- Bawm
+- Bayot
+- Bhadravahi
+- Bhumji
+- Biak
+- Biete
+- Bishnupriya Manipuri Creole
+- Bonan
+- Bongo
+- Bru
+- Bukharic
+- Bukiyip
+- Bumthang
+- Bunun
+- Burgenland Croatian
+- Burunge
+- Burushaski
+- Buryat (Cis-Baikal)
+- Buryat (Manchuria)
+- Central Alaskan Yupik (2)
+- Central Alaskan Yupik (Nuniak Island)
+- Central Otomí
+- Ch'orti' (Guatemala)
+- Chamalal
+- Chamling
+- Chamorro
+- Chang
+- Chayahuita
+- Chepang
+- Cherokee (Oklahoma)
+- Chilchotla Mazatec
+- Cho-ca-nga-ca-kha
+- Chokri
+- Chontal Tabasco
+- Chrau
+- Chru
+- Chuj (Guatemala)
+- Churahi
+- Cosung (China)
+- Cosung (Viet Nam)
+- Crimean Tatar (Dobruja)
+- Csángó Hungarian
+- Cuona Menba
+- Dalecarlian
+- Danuwar
+- Darai
+- Dari
+- Deori
+- Dhimal
+- Dondo
+- Dungan
+- Dzala
+- Dzhidi
+- Eastern Cham
+- Eastern Mazahua
+- Ediamat
+- Embera (Colombia)
+- Embera (Panama)
+- Ersu
+- Faroese
+- Filomeno Mata Totonac
+- Gadaba
+- Gallo-Sicilian
+- Galo
+- Gangte
+- Garífuna (Belize)
+- Garífuna (Honduras)
+- Ghale
+- Griko (Salento)
+- Guajajara
+- Guambiano
+- Guaraní Boliviano
+- Gurdu-Mbaaru
+- Gusilay
+- Gutob
+- Ha-lung Tibetan
+- Hawrami
+- Heiban
+- Higher Reservoir Mazatec
+- Highland Mazatec
+- Hill Miri
+- Hlersu
+- Hmar
+- Hrangkhol
+- Huichol
+- Huitoto (Colombia, Peru)
+- Hulaula (Israel)
+- Huzhu Monguor
+- Idu
+- Irish
+- Isthmus Náhuatl
+- Italiot Greek
+- Ixil (Guatemala)
+- Jakaltek (Guatemala)
+- Jinuo
+- Jola-Kassa
+- Jone
+- Juang
+- Judeo-Berber (Israel)
+- Juk
+- Kabui
+- Kachari
+- Kadaru
+- Kaingang
+- Kaiowá Guarani
+- Karang
+- Karelian (Karelia)
+- Karelian (Tver)
+- Kari'ña (Venezuela)
+- Karko
+- Karone
+- Kashubian
+- Kati
+- Katla
+- Khakas
+- Khalaj
+- Kham
+- Khampti
+- Kheng
+- Kheza
+- Khiamngan
+- Khoirao
+- Khunsari
+- Kinnauri
+- Koch
+- Koda
+- Komo
+- Koraga
+- Korwa
+- Krongo
+- Kryz
+- Kulung
+- Kuna (Panama)
+- Kurripako (Colombia, Venezuela)
+- Kurtöp
+- Kuruba
+- Kurux (Bangladesh)
+- Kurux (Nepal)
+- Kwama
+- Ladin
+- Laemae
+- Lamgang
+- Lari
+- Laro
+- Latin
+- Lauje
+- Lavua
+- Lepcha
+- Liangmai
+- Limonese Creole
+- Lower Mixe
+- Lowland Mazatec
+- Lumun
+- Machiguenga
+- Macushi (Brazil)
+- Majhi
+- Mancagne
+- Manchad
+- Mao
+- Maonan
+- Maori
+- Mara
+- Maram
+- Maring
+- Mariupolitan Greek
+- Mayo
+- Mazatlán Mazatec
+- Mezquital Otomí
+- Minhe Monguor
+- Minyong
+- Miqie
+- Miskito (Honduras)
+- Mojo
+- Mok (Myanmar, Thailand)
+- Moro
+- Mru
+- Muji
+- Mulam
+- Muot
+- Muya
+- Mzieme
+- Nahali
+- Naiki
+- Nalu
+- Naluo
+- Ngile
+- Ngwaba
+- Niuean
+- Nocte
+- Nogay (Caucasus)
+- Noon
+- North Frisian
+- North Saami
+- Northern Khanty
+- Northern Totonac
+- Northern Tujia
+- Northwestern Tarahumara
+- Nruanghmei
+- Nyah Kur
+- Nyenkha
+- Nyoe
+- O'odham (Akimel)
+- O'odham (Tohono)
+- Olonetsian
+- Orang Hulu
+- Otoro
+- Oyda
+- Padam
+- Paite
+- Paiwan
+- Pangvali
+- Papantla Totonac
+- Parji
+- Patani Malay
+- Pemon (Venezuela)
+- Permyak
+- Phunoi
+- Phuthi
+- Piaroa (Venezuela)
+- Plains Cree
+- Pochuri
+- Polci cluster
+- Poqomam
+- Poqomchi'
+- Páez
+- Q'eqchi' (Belize)
+- Quechua of Cajamarca
+- Quechua of Cajatambo, Pasco and northern Junín
+- Quechua of Santiago del Estero
+- Quichua (Cañar and Azuay)
+- Quichua (Imbabura)
+- Quichua (Loja)
+- Quichua (Napo)
+- Quichua (Pastaza)
+- Rao
+- Rarotongan
+- Razihi
+- Rengma
+- Reshe
+- Romansh
+- Rushani
+- Rutul
+- Saek
+- Samei
+- Sampang
+- San Mateo del Mar Huave
+- Sangtam
+- Saparua
+- Sarikoli
+- Satār
+- Scottish Gaelic
+- Semai
+- Semnani
+- Shatt
+- Shipibo-Conibo
+- Shuar chicham
+- Shughni
+- Sibe
+- Sierra Otomí
+- Sierra Popoluca
+- Sierra de Puebla Náhuatl
+- Sikuani
+- Sioux
+- Sirmaudi
+- Siwi
+- Solon
+- Soqotri
+- Sorbian
+- Southern Altay
+- Southern Tujia
+- Soyaltepec Mazatec
+- Sunwar
+- Svan
+- Swampy Cree
+- Taba
+- Tacenwit
+- Tagargrent
+- Tagin
+- Tagoi
+- Tai Daeng
+- Tai Neua
+- Tajio
+- Talu
+- Tamahaq (Libya)
+- Tamazight (Beni Iznassen)
+- Tamazight (Tunisia)
+- Tangsa
+- Tangwang
+- Tayal
+- Tayurayt
+- Taznatit
+- Temein
+- Temiar
+- Terena
+- Tetserret
+- Thangmi
+- Thulung
+- Tialo
+- Ticuna
+- Tidikelt
+- Tiwa
+- Toba
+- Tobada'
+- Torwali
+- Totoli
+- Transylvanian Saxon
+- Trukhmen
+- Tsakhur
+- Tsez
+- Tuamotuan
+- Tundra Nenets
+- Turoyo
+- Tuvaluan
+- Tuwuli
+- Tz'utujil
+- Uhunduni
+- Vafsi
+- Vidunda
+- Vojvodina Rusyn
+- Võro-Seto
+- Wakhi
+- Wancho
+- Wanka Quechua
+- Warao
+- Waunana (Colombia)
+- West Greenlandic
+- Western Armenian (Turkey)
+- Western Mari
+- Western Mazahua
+- Western Neo-Aramaic
+- Wuse
+- Xavante
+- Yaghnobi
+- Yakkha
+- Yaqui (Mexico)
+- Yaw
+- Yem
+- Yeyi
+- Yimchungru
+- Yurt Tatar
+- Zapotec of the Valleys, middle northwest
+- Zaramo
+- Zeme
+- Zenatiya
+- Ñandeva Guarani
+- Northern Sami
+
+  
+
+## Languages with 1,000 to 10,000 speakers (Large Tribe Languages)
+
+- Acatepec Mazatec
+- Achuar
+- Acoma-Laguna
+- Adabe
+- Afitti
+- Aimol
+- Aiton
+- Aivilingmiutut
+- Akawaio (Brazil)
+- Akawaio (Guyana, Venezuela)
+- Akeu
+- Akhvakh
+- Akwáwa
+- Alutor
+- Ampibabo Lauje
+- Andio
+- Anindilyakwa
+- Anung (China)
+- Anung (Myanmar)
+- Apinajé
+- Apurinã
+- Arapaho (Wyoming)
+- Arbore
+- Argobba
+- Arrernte
+- Ashkun
+- Asur
+- Ata
+- Athpahariya
+- Atikamekw
+- Austral dialects
+- Ava-Guaraní
+- Awa Cuaiquer
+- Awakatek (Guatemala)
+- Awjila
+- Ayautla Mazatec
+- Ayoreo
+- Baga Manduri
+- Baga Sitemu
+- Baghati
+- Bagvalal
+- Baheng (Viet Nam)
+- Bahing
+- Bai
+- Bainouk-Gunyaamolo
+- Bainouk-Samik
+- Bakpinka
+- Baleasang
+- Bambassi
+- Banka
+- Baníwa do Içana
+- Bartangi
+- Barí
+- Bashkardi
+- Bashkarik
+- Bayso
+- Beeke
+- Belanda Bor
+- Beli
+- Benga
+- Besme
+- Besoa
+- Bezhta
+- Bharmauri
+- Birhor
+- Bisu
+- Blackfoot (Canada)
+- Blackfoot (United States of America)
+- Boano
+- Bohtan Neo-Aramaic
+- Bokar
+- Bola
+- Bolo
+- Bong'om
+- Boni
+- Bonjo
+- Bora
+- Bori
+- Bororo
+- Botlikh
+- Bribri (Costa Rica)
+- Bribri (Panama)
+- Brokpa
+- Brokshat
+- Budukh
+- Bumbita Arapesh
+- Bunan
+- Burji
+- Bussa
+- Buyang
+- Bwisi
+- Byangsi
+- Cabécar
+- Camsá
+- Candoshi
+- Cashibo-Cacataibo
+- Cashinahua (Brazil)
+- Cashinahua (Peru)
+- Central Cuicatec
+- Central Pame
+- Central Siberian Yupik (St. Lawrence Island)
+- Central Tlapanec
+- Central Zoque
+- Cha'palaa
+- Chali
+- Chantyal
+- Chara
+- Chatino of the western lowlands
+- Chepya
+- Cherokee (North Carolina)
+- Chesu
+- Cheyenne (Montana)
+- Chilisso
+- Chimané
+- Chintang
+- Chipaya
+- Chiquihuitlán Mazatec
+- Chiquitano (Bolivia)
+- Choctaw (Louisiana)
+- Choctaw (Mississipi)
+- Choctaw (Oklahoma)
+- Choyi
+- Chuj (Mexico)
+- Chukchi
+- Chɨlɨng
+- Cinta Larga
+- Cocama-Cocamilla (Peru)
+- Creek
+- Crow
+- Cubeo (Colombia)
+- Cuiba
+- Culina (Brazil)
+- Culina (Peru)
+- Cypriot Arabic
+- Côông
+- Dagur (Hailar)
+- Dahaalik
+- Dair
+- Dakka
+- Dakkang
+- Dakpa
+- Damal
+- Damana
+- Dameli
+- Dampelas
+- Danaw
+- Darma
+- Dene
+- Dhaiso
+- Dilling
+- Dimme
+- Dogrib
+- Dol-po
+- Dolgan
+- Dongotono
+- Duguza
+- Dungmali
+- Dupaninan Agta
+- East Greenlandic
+- Eastern Cuicatec
+- Eastern Khanty
+- Eastern Montagnais
+- Eastern Popoloc
+- Eastern Tlapanec
+- Ebang
+- Ega
+- El Hugeirat
+- Eloxochitlán Mazatec
+- Evenki (Manchuria)
+- Fagauvea (Northern)
+- Fagauvea (Southern)
+- Faghani
+- Fania
+- Feroge
+- Fongoro
+- Forest Nenets
+- Fwâi
+- Fyem
+- Gadang
+- Galibi Marworno
+- Gambiri
+- Garífuna (Guatemala)
+- Gats'ama - Ganjule - Harro
+- Gawar-Bati
+- Gazhuo
+- Gazi
+- Gebe
+- Geji cluster
+- Geta?
+- Ghadames
+- Godoberi
+- Gongduk
+- Gorap
+- Gorum
+- Grass Koiari
+- Griko (Calabria)
+- Guarayu
+- Guayabero
+- Guernsey French
+- Guichong
+- Gura
+- Gutnish
+- Guugu Yimidhirr
+- Gyele
+- Gyem
+- Habu
+- Hachijō
+- Harakmbut
+- Harsusi
+- Hawaiian
+- Helong
+- Highland Chontal
+- Hopi
+- Hozo
+- Hu
+- Hualapai
+- Huehuetla Tepehua
+- Huehuetlán Mazatec
+- Huilliche
+- Hung
+- Hunzib
+- Hupda (Brazil)
+- Hupda (Colombia)
+- Hértevin
+- Ik
+- Ilue
+- Inga
+- Inkhokvari
+- Ishkashimi
+- Isirawa
+- Itzá
+- Ixcatlán Mazatec
+- Iyive
+- Jah Hut
+- Jangshung
+- Jaya
+- Jemez
+- Jeri
+- Jero
+- Jersey French
+- Jibbali
+- Jiongnai Bunu
+- Jirel
+- Jonkor Bourmataguil
+- Juhur (Caucasus)
+- K'emant
+- Kaande
+- Kaco'
+- Kadiwéu
+- Kadu
+- Kairui-Midiki
+- Kalasha
+- Kamara
+- Kami
+- Kanashi
+- Kanela Rankokamekra
+- Kanga
+- Kapingamarangi
+- Karagash
+- Karajá
+- Karata
+- Karelian (Tikhvin)
+- Kari
+- Kari'ña (French Guyana)
+- Kari'ña (Guyana, Suriname)
+- Karipuna do Amapá
+- Kathu
+- Katukína-Kanamarí
+- Kayabi
+- Keiga
+- Kendeje
+- Kendem
+- Khaling
+- Khamba
+- Khamnigan Mongol
+- Khang Quang Lam
+- Khinalug
+- Khojki
+- Khowa
+- Khwe
+- Kivallirmiutut
+- Ko
+- Kodeoha
+- Kogui
+- Kohi
+- Koireng
+- Koitabu
+- Kom
+- Kona
+- Konni
+- Korandje
+- Koreguaje
+- Koryak
+- Kosraean
+- Kota
+- Krahô
+- Kristang
+- Kujarge
+- Kuk
+- Kukatja
+- Kulfa
+- Kumzari
+- Kumāle
+- Kung
+- Kuot
+- Kurripako (Brazil)
+- Kwatay
+- Kāgate
+- Lachi
+- Lafofa
+- Lai
+- Lajia
+- Lakha
+- Lanoh
+- Laomian (China)
+- Laomian (Myanmar)
+- Lemolang
+- Lhokpu
+- Limirong Tibetan
+- Lisela
+- Lishan Didan (Israel)
+- Lishana Deni (Israel)
+- Lishanid Noshan (Israel)
+- Lishpa
+- Logol
+- Logorik
+- Lohorung
+- Lokono (Guyana)
+- Lokono (Suriname)
+- Lower Northwestern Otomí
+- Lowland Chontal
+- Lude
+- Lule Saami
+- Luro
+- Macushi (Guyana)
+- Mah Meri
+- Mahongwe
+- Mak
+- Maleng
+- Mam (Mexico)
+- Mambai
+- Manchurian Ölöt
+- Mang (China)
+- Mang (Viet Nam)
+- Manihiki
+- Manjui
+- Manx
+- Martuwangka
+- Marúbo
+- Mawé
+- Maxakali
+- May
+- Mayoruna (Brazil)
+- Mayoruna (Peru)
+- Mbara
+- Mbya Guarani (Argentina, Uruguay)
+- Mbya Guarani (Brazil)
+- Mbya Guarani (Paraguay)
+- Mebengokre
+- Mech
+- Megleno-Romanian
+- Menik
+- Mescalero-Chiricahua Apache (New Mexico)
+- Micmac (Canada)
+- Micmac (Massachusetts)
+- Miji
+- Miju
+- Milang
+- Mixtec of Villa de Tututepec
+- Mixtec of the Puebla-Oaxaca border
+- Mixtec of the central Ravine
+- Mixtec of the southwest of Puebla
+- Mo'ang (China)
+- Mo'ang (Viet Nam)
+- Mocoví
+- Mohawk (Akwesasne, St. Regis)
+- Mokilese
+- Moklen
+- Molise Croatian
+- Momuna
+- Mopán (Belize)
+- Mopán (Guatemala)
+- Moroccan Judeo-Arabic (Morocco)
+- Morokodo
+- Mortlockese
+- Motuo Menba
+- Movima
+- Moyon
+- Mpi
+- Muda
+- Mundurukú
+- Munji
+- Murik
+- Mursi
+- Mussau-Emira
+- Mòcheno
+- Nachiring
+- Namuyi
+- Nanay
+- Napu
+- Narim
+- Natanzi
+- Natsilingmiutut
+- Naueti
+- Nauruan
+- Nayi
+- Nayini
+- Nding
+- Ngombe
+- Nguon
+- Ngäbere (Costa Rica)
+- Nheengatu / Yeral (Brazil)
+- Nheengatu / Yeral (Venezuela)
+- Nihali
+- Nila (Seram Island)
+- Nomatsiguenga
+- North Alaskan Inupiaq (Kotzebue Sound)
+- North Alaskan Inupiaq (North Slope)
+- North Greenlandic
+- Northern Algonquin
+- Northern Cuicatec
+- Northern East Cree
+- Northern Mansi
+- Northern Popoloc
+- Northern Tepehuán
+- Northern Tlapanec
+- Northwestern Ojibwe
+- Northwestern Tlapanec
+- Numao Bunu
+- Nunavimmiutitut
+- Nupri
+- Nyishangba
+- Oirata
+- Oji-Cree
+- Ojibwe
+- Orang Seletar
+- Ormuri
+- Ottawa (Walpole Island)
+- Ozomatlán Totonac
+- Paafang
+- Padoe
+- Paiter
+- Pakan
+- Palenque Creole
+- Palikur (Brazil)
+- Paloor
+- Palu'e
+- Pana
+- Panamahka
+- Panare
+- Parachi
+- Pareci
+- Parya
+- Pasi
+- Pasing
+- Patamona (Guyana)
+- Patla-Chicontla Totonac
+- Pendau
+- Pengo
+- Phalura
+- Phula (Viet Nam)
+- Piapoko
+- Pilagá
+- Pingelapese
+- Pisaflores Tepehua
+- Pitjantjatjara
+- Pong
+- Prasun
+- Pu
+- Puebla Mazatec
+- Puinave
+- Pukur
+- Puluwat
+- Puma
+- Pume
+- Pyuma
+- Qikiqtaaluk nigiani
+- Qikiqtaaluk uannangani
+- Quechua of Peruvian Amazonia
+- Quechua of San Martín
+- Quechua of Yauyos
+- Quichua (Salasaca)
+- Rahambuu
+- Raji
+- Rapanui
+- Remo
+- Resian
+- Rio Grande Keresan
+- Romani (Colombia)
+- Rongpo
+- Roshorvi
+- Rotuman
+- Rukai
+- Saaroa
+- Saba
+- Sach
+- Sak (Bangladesh)
+- Sak (Myanmar)
+- Sakapultek
+- Sake
+- Saluan
+- San Dionisio del Mar Huave
+- San Francisco del Mar Huave
+- Sanenyo
+- Sangkong
+- Sanglechi
+- Sanyi
+- Sarwa
+- Saryg Yugur
+- Saterlandic
+- Saulteau
+- Savi
+- Savo
+- Sawkna
+- Sayultec
+- Segeju
+- Semaq Beri
+- Semelai
+- Seward Peninsula Inupiaq (King Island)
+- Seward Peninsula Inupiaq (Little Diomede Island)
+- Seward Peninsula Inupiaq (Norton Sound)
+- She
+- Sherdukpen
+- Shingsaba
+- Shira Yugur
+- Shixing
+- Shor
+- Shoshoni (Idaho)
+- Shoshoni (Nevada)
+- Shoshoni (Wyoming)
+- Shumashti
+- Shwai
+- Sighu
+- Sila
+- Singpho
+- Sinkiang Dagur
+- Sipakapense
+- Sivandi
+- Skwxwú7mesh
+- Sobei
+- Soi
+- Southeastern Tarahumara
+- Southern East Cree
+- Southern Tiwa (Isleta Pueblo)
+- Southern Tiwa (Sandia Pueblo)
+- Southwestern Tepehuan
+- Stoney
+- Sulung
+- Sáliba
+- Taa
+- Tafi
+- Tai Phake
+- Takahanyilang
+- Talodi
+- Tamazight (Ait Rouadi)
+- Tamazight (Arzew)
+- Tanglang
+- Taroko
+- Taruang
+- Tchitchege
+- Tchumbuli
+- Te'un (Seram Island)
+- Tecóatl Mazatec
+- Tektitek
+- Temuan
+- Tennet
+- Teribe (Panama)
+- Tese
+- Tewa (Arizona)
+- Tewa (New Mexico)
+- Thakali
+- Thavung (Laos)
+- Thuri
+- Tima
+- Tinan
+- Tindi
+- Tingal
+- Tirma
+- Tiwi
+- Tlachichilco Tepehua
+- Tocho
+- Toda
+- Tokelauan
+- Tombelala
+- Toram
+- Toto
+- Trio (Brazil)
+- Trio (Suriname)
+- Triw
+- Ts'amay
+- Tsafiki
+- Tsou
+- Tsum
+- Tucano (Brazil)
+- Tulishi
+- Tum
+- Tumtum
+- Tunebo
+- Tuotomb
+- Turi
+- U
+- Ubi
+- Udi (Azerbaijan)
+- Ujir
+- Ukhwejo
+- Ulithian
+- Upland Yuman
+- Urak Lawoi (Malaysia)
+- Urak Lawoi (Thailand)
+- Urarina
+- Ushojo
+- Uspantek
+- Utsat
+- Veps
+- Vumbu
+- Waigali
+- Waima'a
+- Waimirí-Atroarí
+- Waiwai (Brazil)
+- Wambule
+- Wampis
+- Wano
+- Waotededo
+- Wapishana (Brazil)
+- Wapishana (Guyana)
+- Warlpiri
+- Warnang
+- Waunana (Panama)
+- Wayana (Suriname)
+- Western Apache
+- Western Mazatec
+- Western Montagnais
+- Western Náhuatl
+- Western Tarahumara
+- Western Zoque
+- White Gelao (China)
+- Wik Mungkan
+- Woleaian
+- Woods Cree
+- Wotapuri-Katarqalai
+- Wotu
+- Wunai Bunu
+- Wutun
+- Xerente
+- Xinka
+- Yagua
+- Yami
+- Yamphu
+- Yanesha
+- Yanomami (Brazil)
+- Yanomami (Venezuela)
+- Yanomám
+- Yasa
+- Yatê
+- Yazgulami
+- Yecuana (Venezuela)
+- Yidgha
+- Yine
+- Younuo Bunu
+- Yucatec
+- Yukpa
+- Yulu
+- Yuracaré
+- Zaiwa
+- Zaozou
+- Zapotec of Petapa
+- Zapotec of the Valleys north
+- Zay
+- Zenaga (Mauritania)
+- Zenaga (Western Sahara)
+- Zhaba
+- Zirenkel
+- Zuni
+- |Gui
+- ǁAni
+- ǁGana
+
+  
+
+## Languages with 1-1,000 speakers (Small Tribe Languages)
+
+- A'ingae / Cofan (Colombia)
+- A'ingae / Cofan (Ecuador)
+- Abai Sungai
+- Achagua
+- Adnyamathanha
+- Aheu
+- Aikana
+- Ainbai
+- Aja
+- Aka
+- Akatek (Mexico)
+- Akum
+- Alabama
+- Alabugat Tatar
+- Aleut (Eastern)
+- Aleut (Western)
+- Amahuaca
+- Amblong
+- Andoke
+- Anfillo
+- Animere
+- Antakirinya
+- Anuki
+- Apalai
+- Aputai
+- Arara do Pará
+- Araweté
+- Arbanasi
+- Archi
+- Arem
+- Arguni
+- As
+- Ashaninka (Brazil)
+- Assiniboine (United States of America)
+- Asurini do Xingu
+- Auye
+- Awapit
+- Aweti
+- Awyi
+- Bahonsuai
+- Bakairi
+- Baki
+- Bakole
+- Bana
+- Banawá Yafi
+- Baniva
+- Bara (Colombia)
+- Baras
+- Barasana (Colombia)
+- Barām
+- Bataan Ayta
+- Batak
+- Batek
+- Bathari
+- Bati
+- Bats
+- Beaver
+- Bedoanas
+- Beezen
+- Benggoi
+- Bierebo
+- Bikaru
+- Birri
+- Blablanga
+- Black Mountain
+- Boguru
+- Bonggo
+- Boor
+- Bosilewa
+- Brokkat
+- Bubia
+- Budibud
+- Buga
+- Buglé
+- Burate
+- Busoa
+- Caac
+- Cacua
+- Callahuaya
+- Camarines Norte Agta
+- Capanahua
+- Caquinte Campa
+- Carrier
+- Central Cagayan Agta
+- Central Ojibwe
+- Central Popoloc
+- Central Siberian Yupik (Chukotka)
+- Chatino of Zacatepec
+- Chatong
+- Chawte
+- Che Wong
+- Cheyenne (Oklahoma)
+- Chickasaw
+- Chihuahua Lower Pima
+- Chilcotin
+- Chimila
+- Chong
+- Chorote Iyojwa'ja
+- Chácobo
+- Cimbrian
+- Cobiana
+- Cocopa (Arizona)
+- Cocopa (Mexico)
+- Comanche
+- Cornish
+- Cubeo (Brazil)
+- Dabra
+- Dagur (Amur)
+- Dahalo
+- Dakota
+- Danisi
+- Defaka
+- Demisa
+- Dengalu
+- Dení
+- Desano (Brazil)
+- Dimbong
+- Djinang
+- Doga
+- Domaaki
+- Dorig
+- Drubea
+- Dubu
+- Dukha
+- Dulbu
+- Duwet
+- Dâw
+- Eastern Chocho
+- Eastern Ojibwe
+- Emae
+- Eman
+- Emplawas
+- Enawenê-Nawê
+- Enggano
+- Erokwanas
+- Ese eja
+- Faetar
+- Faire Atta
+- Fayu
+- Gagauz (Maritime)
+- Ganan
+- Gao
+- Gardiol
+- Garuwahi
+- Gavião de Rondônia
+- Gavião do Pará
+- Geme
+- Ghomara
+- Gitksan
+- Gowro
+- Green Gelao (China)
+- Green Gelao (Viet Nam)
+- Guajá
+- Guatuso
+- Gupapuyngu
+- Gwich'in (Canada)
+- Gwich'in (United States of America)
+- Hadza
+- Haisla
+- Halkomelem
+- Handuri
+- Havasupai
+- Hayu
+- Heiltsuk
+- Hidatsa
+- Hijuk
+- Hinukh
+- Hiw
+- Hixkaryána
+- Hoava
+- Hobyot
+- Hodi
+- Hya
+- Ikpeng
+- Ili Turk
+- Imeraguen
+- Inari Saami
+- Indri
+- Ingrian
+- Inuinnaqtun
+- Istriot
+- Istro-Romanian
+- Isu
+- Itelmen
+- Iwaidja
+- Ixtenco Otomí
+- Iñapari
+- Jakaltek (Mexico)
+- Jamamadí
+- Jaqaru
+- Jarawára
+- Javaé
+- Jawe
+- Jebero
+- Jicarilla Apache
+- Jilbe
+- Judeo-Italian
+- K'iche' (Mexico)
+- Ka'apór
+- Kadai
+- Kaibobo
+- Kaiep
+- Kaike
+- Kaiy
+- Kaki Ae
+- Kalamo
+- Kalao
+- Kalapalo
+- Kalaw Lagaw Ya
+- Kamaiurá
+- Kandas
+- Kanela Apaniekra
+- Kangjia
+- Kaningara
+- Kanowit
+- Kao
+- Karas
+- Karitiana
+- Karo
+- Karore
+- Kasanga
+- Kaska
+- Katukina do Acre
+- Katxuyana-Xikuyána
+- Kaxarari
+- Keder
+- Kelo
+- Kensiw (Thailand)
+- Ket
+- Khmin
+- Khvarshi
+- Kickapoo (Kansas)
+- Kickapoo (Mexico)
+- Kickapoo (Oklahoma)
+- Kickapoo (Texas)
+- Kildin Saami
+- Kiong
+- Kiowa
+- Kisêdjê
+- Klingon
+- Koasati (Louisiana)
+- Koasati (Texas)
+- Kofei
+- Koke
+- Kokota
+- Koneraw
+- Koro
+- Koroni
+- Koroshi
+- Korúbo
+- Kowiai
+- Koyukon
+- Krikati
+- Kua
+- Kuikuro
+- Kumak
+- Kuna (Colombia)
+- Kunbarlang
+- Kundal Shahi
+- Kunwinjku
+- Kutenai
+- Kuurinji
+- Kwak'wala
+- Kwansu
+- Kwegu
+- Laal
+- Labo
+- Lacandón
+- Laghuu
+- Laha (Lao Cai)
+- Laha (Son La)
+- Laiyolo
+- Laji
+- Lakon
+- Lamongse
+- Lamu
+- Langa
+- Laxudumau
+- Legenyem
+- Lehali
+- Likum
+- Lillooet
+- Lola
+- Löyöp
+- Machineri (Bolivia)
+- Machineri (Brazil)
+- Magori
+- Majera
+- Mako
+- Malecite
+- Maliseet-Passamaquoddy
+- Malmariv
+- Mandaic
+- Mangareva
+- Mani
+- Maniq
+- Maniwaki Algonquin
+- Maricopa
+- Maslam
+- Matlatzinca
+- Matís
+- Maung
+- Mehináku
+- Meriam Mir
+- Mewahang
+- Mikasuki
+- Miltu
+- Misantla Totonac
+- Mixtec of San Miguel Piedras
+- Mixtec of San Pedro Tidaá
+- Mixtec of Santa Cruz Itundujia
+- Mixtec of Santa Inés de Zaragoza
+- Mixtec of Zapotitlán
+- Mixtec of the northeast lowlands
+- Mlabri
+- Mlomp
+- Mo'da
+- Moghol
+- Mohave (Arizona)
+- Mohave (California)
+- Mok (China)
+- Molo
+- Mono
+- Moose Cree
+- Mosetén
+- Motocintlec
+- Mountain Guarijío
+- Mra
+- Mt. Iraya Agta
+- Mulao
+- Musom
+- Mvanip
+- Mwatebu
+- Myky
+- Na
+- Nadëb
+- Nafi
+- Nahukwa
+- Nambiquara do Norte
+- Nambiquara do Sul
+- Namonuito
+- Nanti
+- Narpa
+- Naskapi
+- Nauna
+- Ndunda
+- Negidal
+- Neku
+- Nemadi
+- Nemi
+- Ngaanyatjarra
+- Nganasan
+- Ngatikese Men's Creole
+- Ninam (Brazil)
+- Ninam (Venezuela)
+- Ningalami
+- Nisga'a
+- Nivkh (Sakhalin)
+- Njalgulgule
+- Nootka
+- Norfolk-Pitcairn (Norfolk)
+- North Alaskan Inupiaq (Canada)
+- North Slavey
+- Northern Alta
+- Northern Paiute (Nevada)
+- Northern Paiute (Oregon)
+- Northern Pame
+- Northern Selkup
+- Northern Tutchone
+- Nubaca
+- Nukuoro
+- Numbani
+- Nunatsiavummiutut
+- Nung Ven
+- Nyangumarta
+- Obokuitai
+- Ocaina (Colombia)
+- Ocaina (Peru)
+- Ocopetatillo Mazatec
+- Ocoyoacac Otomí
+- Okanagan
+- Omagua (Peru)
+- Ongamo
+- Onin
+- Onjab
+- Opuuo
+- Orejón
+- Ormu
+- Oroch
+- Oroha
+- Orowe
+- Ottawa (Canada)
+- Ottawa (Michigan)
+- Pacific Gulf Yupik
+- Paipai
+- Palikur (French Guyana)
+- Panará
+- Panasuan
+- Papapana
+- Paumarí
+- Pauwi
+- Pear
+- Pech
+- Pemon (Brazil)
+- Penrhyn
+- Phong
+- Piame
+- Piaroa (Colombia)
+- Picuris
+- Pije
+- Pintupi
+- Pipil
+- Pirahã
+- Piratapuya (Brazil)
+- Piratapuya (Colombia)
+- Piu
+- Polonomombauk
+- Pukapukan
+- Pukobyê
+- Pupeo
+- Purum
+- Pwaamèi
+- Quechan
+- Quechua of Chachapoyas
+- Rapa
+- Raute
+- Red Gelao (China)
+- Rikbaktsa
+- River Guarijío
+- Ruc
+- Ruga
+- Sahaptin
+- Saisiyat
+- Samatao
+- Samatu
+- Samre
+- Sanema (Brazil)
+- Sanema (Venezuela)
+- Santa María del Mar Huave
+- Satawal
+- Sauk-Fox
+- Sause
+- Seke
+- Seneca (United States of America)
+- Senggi
+- Sengseng
+- Sepa
+- Sera
+- Seri
+- Serili
+- Shabo
+- Shanenawa
+- Sharanahua
+- Shark Bay
+- Shawnee
+- Shiwiar
+- Shompen
+- Shuswap
+- Siglitun
+- Siona Secoya (Peru)
+- Siona / Secoya (Colombia)
+- Siona / Secoya (Ecuador)
+- Sirionó
+- Sissano
+- Skolt Saami
+- Sonora Lower Pima
+- Sonsorol
+- Soo
+- South Greenlandic
+- South Saami
+- South Slavey
+- Southern Ayta
+- Southern Chocho
+- Southern Tlapanec
+- Southern Zoque
+- Straits Salish
+- Suarmin
+- Suruahá
+- Swoeng
+- Tabasco Náhuatl
+- Tai Nora
+- Tai Rong
+- Taikat
+- Taje
+- Taloki
+- Talondo
+- Tamki
+- Tangam
+- Taos
+- Tapirapé
+- Tarao
+- Tariana (Brazil)
+- Tarpia
+- Taulil
+- Tause
+- Tawahka
+- Taworta
+- Teanu
+- Tenharim
+- Texistepecan
+- Thaayorre
+- Thavung (Thailand)
+- Theen
+- Thompson
+- Tilapa Otomí
+- Tilung
+- Tipai (Mexico)
+- Tirahi
+- Tiri
+- Tlahuica
+- Tlingit (United States of America)
+- Tol
+- Tolomako
+- Tomadino
+- Toratán
+- Ts'ixa
+- Tsakonian
+- Tsimshian
+- Tuahka
+- Tundra Yukagir
+- Tunisian Judeo-Arabic (Tunisia)
+- Tupari
+- Tutuba
+- Tuyuca (Brazil)
+- Töitschu
+- Ulcha
+- Ulwa
+- Uru-eu-au-au
+- Ute (Colorado, Southern Ute)
+- Ute (Colorado, Ute Mountain)
+- Ute (Utah)
+- Valle Nacional Chinantec
+- Vedda
+- Vehes
+- Vera'a
+- Voh-Koné dialects
+- Wab
+- Waiwai (Guyana)
+- Waiwai (Suriname)
+- Wajãpi
+- Wali
+- Walmajarri
+- Wanano / Kotiria (Brazil)
+- Warapu
+- Warekena (Venezuela)
+- Wari
+- Waru
+- Wauja
+- Wayana (Brazil)
+- Western Otomí
+- Western Popoloc
+- Western Tlapanec
+- Wik Ngathan
+- Winnebago (Nebraska)
+- Winnebago (Wisconsin)
+- Xaragure
+- Xokleng
+- Yaminahua (Bolivia, Peru)
+- Yaminahua (Brazil)
+- Yangkam
+- Yaqui (United States of America)
+- Yavapai
+- Yawanawá
+- Yawarana
+- Yecuana (Brazil)
+- Yerong
+- Yimas
+- Yudja
+- Yuhup (Brazil)
+- Yuhup (Colombia)
+- Zapotec of San Antonino el Alto
+- Zapotec of San Bartolo Yautepec
+- Zapotec of Zimatlán de Álvarez
+- Zapotec of the Southern mountains, eastern lowlands
+- Zapotec of the Southern mountains, northeast
+- Zapotec of the Southern mountains, northwest lowlands
+- Zapotec of the Valleys, central
+- Zapotec of the Valleys, west
+- Zazao
+- Zo'é
+- Zoró
+- |Xaise
+- Émérillon
+- ǂHoa
+- Abadi
+
+  
+
+## Languages with no speakers (Extinct)
+
+- Abaga
+- Achumawi
+- Ahtna
+- Ainu (Hokkaido)
+- Ajuru
+- Ak
+- Akuntsu
+- Alabat Island Agta
+- Alawa
+- Aleut (Western, Commander Islands)
+- Amahai
+- Anambé
+- Andoa (Peru)
+- Anus
+- Apiaká
+- Aqaw Gelao
+- Arabana
+- Arabela
+- Araki
+- Araona
+- Arawun
+- Arha
+- Arho
+- Ari
+- Arikapu
+- Arikara
+- Aruá
+- Arára Shawãdáwa
+- Assiniboine (Canada)
+- Asumboa
+- Atemble
+- Aurê-Aurá
+- Ava-Canoeiro
+- Aveteian
+- Awakatek (Mexico)
+- Awera
+- Ayapanec
+- Ayizi
+- Añu
+- Bagupi
+- Baldemu
+- Bangsa
+- Banjima
+- Bara (Brazil)
+- Barasana (Brazil)
+- Bardi
+- Barzani Jewish Neo-Aramaic (Israel)
+- Baré (Brazil)
+- Baure
+- Bella Coola
+- Bepour
+- Bieria
+- Bikya
+- Bilakura
+- Bishuo
+- Bom
+- Bonerif
+- Boruca
+- Bothar
+- Budong-Budong
+- Bulgebi
+- Bundjalung
+- Bung
+- Bunuba
+- Busuu
+- Caddo
+- Cahuilla
+- Cambap
+- Canichana
+- Carapana (Brazil)
+- Carapana (Colombia)
+- Carijona
+- Cayuvava
+- Central Pomo
+- Central Selkup
+- Central Sierra Miwok
+- Ch'orti' (Honduras)
+- Chamacoco
+- Chamicuro
+- Chaná
+- Chemehuevi
+- Chintaw
+- Chiquitano (Brazil)
+- Chorotega
+- Chulym Turk
+- Chung (Cambodia)
+- Chung (Thailand)
+- Cocama-Cocamilla (Brazil)
+- Coeur d'Alene
+- Columbian
+- Comox/Sliammon
+- Copper Island Aleut
+- Dampel
+- Dharawal
+- Diahói
+- Djeoromitxi
+- Dorro
+- Doutai
+- Dumi
+- Dumun
+- Duriankere
+- Dusner
+- Dyirbal
+- East Cape Yupik
+- Faita
+- Forest Enets
+- Forest Yukagir
+- Foya
+- Gajerrong
+- Gamilaraay
+- Ganggalidda
+- Garrwa
+- Gong
+- Gooniyandi
+- Gorovu
+- Goundo
+- Great andamanese
+- Gros Ventre
+- Guarasu
+- Guató
+- Gumbaynggirr
+- Guranalum
+- Gurrgoni
+- Gweno
+- Han (United States of America)
+- Hermit
+- Holikachuk
+- Hoti
+- Hulung
+- Hupa
+- Ibu
+- Iduh (Lao PDR)
+- Iduh (Viet Nam)
+- Ingalik
+- Ipai
+- Iquito
+- Iranxe
+- Iresim
+- Isarog Agta
+- Iteri
+- Itik
+- Itonama
+- Ixcatec
+- Ixil (Mexico)
+- Jaminjung
+- Jarawa
+- Jawoyn
+- Jingulu
+- Juma
+- Kaixána
+- Kalispel
+- Kamarian
+- Kamasa
+- Kanakanabu
+- Kanoê
+- Kapori
+- Kaqchikel (Mexico)
+- Karaim (Lithuania)
+- Karaim (Western Ukraine)
+- Karajarri
+- Kari'ña (Brazil)
+- Karipuna
+- Karuk
+- Kashaya
+- Kasong
+- Katawixi
+- Kavalan
+- Kawaiisu
+- Kawucha
+- Kayardild
+- Kayupulau
+- Kembra
+- Khövsgöl Uryangkhay
+- Kija
+- Kiksht
+- Kilen
+- Kiliwa
+- Kim
+- Kings River Yokuts
+- Kinikinau
+- Kiowa Apache
+- Klallam
+- Koko Bera
+- Konkow
+- Korana
+- Kowaki
+- Krenak
+- Kri
+- Kudu-Camo
+- Kujubim
+- Kuku Yalanji
+- Kulina Páno
+- Kunjen
+- Kurrama
+- Kuruáya
+- Kusunda
+- Kuuku Ya'u
+- Kwazá
+- Kwerisa
+- Lae
+- Lake Miwok
+- Lardil
+- Laua
+- Leco
+- Lemerig
+- Lengilu
+- Liki
+- Lolak
+- Lom
+- Lorediakarkar
+- Loun
+- Luiseño
+- Luri
+- Lushootseed
+- Mabiri
+- Macuna (Brazil)
+- Madngele
+- Mafea
+- Maidu
+- Makah
+- Makolkol
+- Maku'a
+- Makurap
+- Malak Malak
+- Malinaltepec Tlapanec
+- Manchu (Amur)
+- Manchu (Nonni)
+- Manchurian Kirghiz
+- Mandan
+- Mander
+- Mangarla
+- Mangarrayi
+- Mansim
+- Maremgi
+- Maringarr
+- Marrisyefin
+- Marrithiyel
+- Massalat
+- Massep
+- Matanvat
+- Matipu
+- Mawak
+- Mawayana (Brazil)
+- Menominee
+- Mescalero-Chiricahua Apache (Oklahoma)
+- Mindiri
+- Miriwoong
+- Mixtec of Tlaltempan
+- Moere
+- Mono (Eastern)
+- Mono (Western)
+- Montana Salish
+- Mor
+- Moraori
+- Mores
+- Moré
+- Mosimo
+- Mudburra
+- Munichi
+- Munsee (Canada)
+- Musan
+- Mwesen
+- Naati
+- Nakkara
+- Naman
+- Narau
+- Nasarian
+- Nataoran
+- Navwien
+- Ndai
+- Nez Perce
+- Ngaatjatjara
+- Ngalakan
+- Ngaliwuru
+- Ngalkbun
+- Ngandi
+- Ngangikurunggurr
+- Ngardi
+- Ngarinman
+- Ngarinyin
+- Ngarluma
+- Ngbinda
+- Nisvai
+- Nivat
+- Niviar
+- Njerep
+- Norfolk-Pitcairn (Pitcairn)
+- Northern Paiute (Idaho)
+- Northern Pomo
+- Northern Sierra Miwok
+- Northern Straits Salish
+- Noy
+- Nunggubuyu
+- Nusa Laut
+- Nyamal
+- Nyikina
+- N|uu
+- O'odham (Mexico)
+- Ofayé
+- Olrat
+- Olultecan
+- Omaha-Ponca
+- Omotik
+- Oneida (New York)
+- Oneida (Wisconsin)
+- Onge
+- Ongota
+- Onondaga (New York)
+- Oro Win
+- Orok
+- Osage
+- Ouma
+- Paakantyi
+- Pacahuara
+- Panamint
+- Papi
+- Parintintin
+- Patamona (Brazil)
+- Patua
+- Patwin
+- Paulohi
+- Paunaca
+- Pawnee
+- Pazeh
+- Pisamira
+- Pite Saami
+- Potawatomi (Kansas)
+- Potawatomi (Michigan)
+- Potawatomi (Oklahoma)
+- Potawatomi (Wisconsin)
+- Poyanawa
+- Puari
+- Punan Batu
+- Puruborá
+- Pwapwa
+- Pémono
+- Qawasqar
+- Quechua of Pacaraos
+- Rama
+- Red Gelao (Viet Nam)
+- Rembarrnga
+- Repanbitip
+- Resígaro
+- Ririo
+- Ritharrngu
+- Sabanê
+- Sakurabiat
+- Salamãy
+- Salas
+- Sambe
+- Samosa
+- Samray
+- Saponi
+- Sapé
+- Sarcee
+- Sechelt
+- Sekani
+- Senaya
+- Sene
+- Sentilese
+- Sia Pedee
+- Sian
+- Siriano (Brazil)
+- Ske
+- Somm
+- Somyev
+- Sorsorian
+- Southern Haida
+- Southern Pomo
+- Southern Selkup
+- Southern Sierra Miwok
+- Southern Tutchone
+- Southwestern Tlapanec
+- Sowa
+- Spokane
+- Sumariup
+- Surel
+- Susuami
+- Sām
+- Taap
+- Tahltan
+- Taiap
+- Tambotalo
+- Tanacross
+- Tanaina
+- Tanana
+- Tanema
+- Tanimbili
+- Tapayuna
+- Tape
+- Taushiro
+- Tehuelche
+- Teko
+- Tembé
+- Tench
+- Ter Saami
+- Teribe (Costa Rica)
+- Thao
+- Tharkarri
+- Tinigua
+- Tipai (United States of America)
+- Tlingit (Canada)
+- Tobati
+- Tobian
+- Tofa
+- Tofanma
+- Tolowa
+- Totoró
+- Trumai
+- Tubatulabal
+- Tule-Kaweah Yokuts
+- Tundra Enets
+- Turaka
+- Tuscarora (United States of America)
+- Tuzantec
+- Udege
+- Umbrul
+- Ume Saami
+- Umpila
+- Upper Kuskokwim
+- Upper Tanana (United States of America)
+- Ura
+- Uru
+- Uruak
+- Usku
+- Usu
+- Vacacocha
+- Valley Yokuts
+- Vano
+- Vilamovian
+- Volow
+- Vote
+- Waanyi
+- Wagiman
+- Wajarri
+- Wambaya
+- Wangaaybuwan
+- Wardaman
+- Warekena (Brazil)
+- Warnman
+- Warumungu
+- Washo
+- Western Chocho
+- White Gelao (Viet Nam)
+- Wichita
+- Wik Ngencherr
+- Wintu-Nomlaki
+- Wiradjuri
+- Woria
+- Worrorra
+- Wunambal
+- Xambioá
+- Xetá
+- Xipáya
+- Xiri
+- Yahgan
+- Yan-nhangu
+- Yankunytjatjara
+- Yanyuwa
+- Yapunda
+- Yarawata
+- Yarawi
+- Yawalapiti
+- Yiiji
+- Yoki
+- Yuchi
+- Yurok
+- Zaparo
+- Zapotec of Asunción Tlacolulita
+- Zapotec of Mixtepe
+- Zapotec of San Felipe Tejalapan
+- Zumaya
+
+---
+
+# Letters of the Alphabet Iceberg
+It's the letters of the English Lexicon!
+## Vowels
+- A
+- E
+- I
+- O
+- U
+## Consonants
+- B
+- C
+- D
+- F
+- G
+- H
+- J
+- K
+- L
+- M
+- N
+- P
+- R
+- S
+- T
+- V
+- W
+- X
+- Y
+- Z
+## Removed Letters
+- ð
+- þ
+- ƿ
+- ȝ
+## Theoretical Letters
+- æ
+- œ
+## Forbidden Letters
+- Ƒ
+- Ŋ
+- ꝥ
+## The Worst Letter Imaginable
+- Q
+---
+#  Typology
+- 4 Temperaments
+- The MBTI
+- Carl Jung
+- MBTI memes
+- Turbolence and assertiveness
+- Tritype
+- IXTP EXTP EXFP
+- Typing non sentient objects
+- Typology database sites
+- Type change subliminal messaging
+- Always using all functions
+- Jungs disapproval of MBTI
+- MBTI changes over time
+- Typology books
+- mbti x sloan correlation
+- Objective Personality typology
+- Socionics "only possible in fiction"
+- The MBTI proven
+- INTP 3w2s on the internet
+- All functions introverted
+- Feelers cant think
+- MBTI type and disorder correlation
+- Chaotic evil types in real life
+- Medieval typology
+- Evil MBTI
+- enfps with social anxiety
+- 487 is a common tritype
+- MBTI Creativity Index
+- xvideos MBTI PERSONALITY TEST
+#  Untranslatable Words and Phrases Iceberg
+- [木漏れ日](https://en.wiktionary.org/wiki/%E6%9C%A8%E6%BC%8F%E3%82%8C%E6%97%A5 "Japanese, sunlight filtering through trees.")
+- [Hyggelig](https://www.ox.ac.uk/news/arts-blog/being-hyggelig "Norwegian, cosy domestic bliss.")
+- [Uffda! / Uff da!](https://en.wikipedia.org/wiki/Uff_da "Norwegian, used to express dismay, typically upon hearing bad news.")
+- [Schadenfreude](https://en.wikipedia.org/wiki/Schadenfreude "German, \"pleasure, joy, or self-satisfaction that comes from the first- or second-hand learning of the troubles, failures, pain, suffering, or humiliation of another.")
+- [物の哀れ](https://en.wiktionary.org/wiki/%E7%89%A9%E3%81%AE%E5%93%80%E3%82%8C "Japanese, \"the pathos of things.")
+- [Hakuna matata](https://en.wikipedia.org/wiki/Hakuna_matata "Swahili, \"no trouble\" or \"no worries\" and \"take it easy\".")
+- [Merak](https://en.wiktionary.org/wiki/merak#Serbo-Croatian "Serbian, desire, yearning, and enjoyment thereof, or enjoyment of the simple things in life.")
+- [Hodophile](https://en.wiktionary.org/wiki/hodophile "Greek, a lover of travelling.")
+- [답정너](https://en.wiktionary.org/wiki/%EB%8B%B5%EC%A0%95%EB%84%88 "Korean, literally \"answer-set-you\"; shortened from \"the answer is already set in stone; all you have to do is give me that answer.\"")
+- [絵文字](https://en.wiktionary.org/wiki/%E7%B5%B5%E6%96%87%E5%AD%97 "Japanese, emoji: emoticons that originated in Japanese telephony.")
+- [加油](https://en.wikipedia.org/wiki/Jiayou_\(cheer\) "Chinese, expression of encouragement and support.")
+- [Saudade](https://en.wikipedia.org/wiki/Saudade "Portuguese, an emotional state of melancholic or profoundly nostalgic longing for a beloved yet absent someone or something.")
+- [Gezelligheid](https://en.wikipedia.org/wiki/Gezelligheid#:~:text=Gezelligheid%20\(Dutch%20pronunciation%3A%20%5B%C9%A3%C9%99%CB%88z%C9%9Bl%C9%99x%C9%9Bit,coziness'%2C%20'fun'. "Dutch, often used to describe a social funny and relaxed situation. It can also indicate belonging, time spent with loved ones, catching up with an old friend or just the general togetherness that gives people a warm feeling.")
+- [Vorführeffekt](https://en.wiktionary.org/wiki/Vorf%C3%BChreffekt "German, the phenomenon that something which was previously working correctly, suddenly does not work correctly when one tries to demonstrate the operation to others.")
+- [Hiraeth](https://en.wiktionary.org/wiki/hiraeth "Welsh, wistfulness; nostalgia; longing; homesickness; a deep feeling of yearning for something, someone or somewhere.")
+- [Vagary](https://www.merriam-webster.com/dictionary/vagary "Latin, an erratic, unpredictable, or extravagant manifestation, action, or notion.")
+- [Alpeggiare](https://en.wiktionary.org/wiki/alpeggiare#Italian "Italian, to pasture (animals) in Alpine meadows in the summer(transitive), to stay in Alpine meadows in the summer(intransitive).")
+- [Sehnsucht](https://en.wikipedia.org/wiki/Sehnsucht "German, some psychologists use the word to represent thoughts and feelings about all facets of life that are unfinished or imperfect, paired with a yearning for ideal alternative experiences.")
+- [Sturmfrei](https://en.wiktionary.org/wiki/sturmfrei "German, having the house or flat to oneself, due to the absence of parents, housemates, or flatmates.")
+- [Mångata](https://en.wiktionary.org/wiki/m%C3%A5ngata "Swedish, the roadlike reflection of moonlight on water.")
+- [孝顺](https://en.wiktionary.org/wiki/%E5%AD%9D%E9%A0%86 "Chinese, to show filial piety; to be obedient to one's parents or other senior relatives.")
+- [L’appel du vide](https://medium.com/persons/call-to-the-void-lappel-du-vide-140accbabef8 "French, \"the call of void\". An unseemly urge to jump off a cliff, or ledge, for instance.")
+- [Sobremesa](https://en.wiktionary.org/wiki/sobremesa "Spanish, time spent at the table after eating; the habit of relaxing at the table after a heavy meal.")
+- [Dalalæða](https://wildernesscoffee-naturalhigh.com/dalalaeda-spectacular-waterfalls-of-fog/ "Icelandic, an elusive natural phenomenon of fog waterfalls.")
+- [Sauna](https://en.wikipedia.org/wiki/Sauna "Finnish, a room or building designed as a place to experience dry or wet heat sessions or an establishment with one or more of these facilities.")
+- [Waldeinsamkeit](https://en.wiktionary.org/wiki/Waldeinsamkeit "German, woodland solitude (the feeling of solitude in the woods).")
+- [Anteayer](https://en.wiktionary.org/wiki/anteayer "Spanish, day before yesterday.")
+- [Kabelsalat](https://en.wiktionary.org/wiki/Kabelsalat "German, cable spaghetti.")
+- [Εὐδαιμονία](https://en.wiktionary.org/wiki/%CE%B5%E1%BD%90%CE%B4%CE%B1%CE%B9%CE%BC%CE%BF%CE%BD%CE%AF%CE%B1 "Greek, eudaimonia (in Aristotelian ethics, a condition of living a life of the highest virtue; the state of human flourishing, which is desirable in and of itself, rather than as a means towards some other end).")
+- [Тоска](https://www.reddit.com/r/russian/comments/mz7v77/what_does_the_word_%D1%82%D0%BE%D1%81%D0%BA%D0%B0_mean_exactly/ "Russian, a sensation of great spiritual anguish, often without any specific cause.")
+- [Backpfeifengesicht](https://germanyinusa.com/2019/02/22/word-of-the-week-backpfeifengesicht/ "German, a face that’s begging to be slapped.")
+- [Любоваться](https://en.wiktionary.org/wiki/%D0%BB%D1%8E%D0%B1%D0%BE%D0%B2%D0%B0%D1%82%D1%8C%D1%81%D1%8F "Russian, to admire, to feast one's eyes (upon).")
+- [侘寂](https://en.wikipedia.org/wiki/Wabi-sabi "Japanese, the appreciation of beauty that is \"imperfect, impermanent, and incomplete\".")
+- [Entarter](https://en.wiktionary.org/wiki/entarter#:~:text=\(file\)-,Verb,at%2C%20to%20hit%20with%20pie "French, to throw a cream pie at someone's face, to pie.")
+- [缘分](https://en.wikipedia.org/wiki/Yuanfen "Chinese, a concept in Chinese society describing good and bad chances and potential relationships.")
+- [Utepils](https://en.wiktionary.org/wiki/utepils "Norwegian, a beer that is drunk outdoors, especially outside a restaurant or bar.")
+- [Flâner](https://www.bbc.com/travel/article/20191027-the-word-that-encapsulates-frenchness "French, to wander aimlessly through a city.")
+- [Mamihlapinatapei](https://en.wiktionary.org/wiki/mamihlapinatapai "Yaghan, a situation in which all participants want something to be done, but none want to do it.")
+- [Chez](https://www.merriam-webster.com/dictionary/chez "French, at or in the home or business place of.")
+- [يقبرني](https://forum.wordreference.com/threads/lebanese-arabic-%D9%8A%D9%82%D8%A8%D8%B1%D9%86%D9%8A.3153645/ "Arabic, used to express the most degree of passion towards somebody.")
+- [Bérézina](https://en.wiktionary.org/wiki/b%C3%A9r%C3%A9zina "French, complete disaster, crushing defeat.")
+- [злорадствовать](https://en.wiktionary.org/wiki/%D0%B7%D0%BB%D0%BE%D1%80%D0%B0%D0%B4%D1%81%D1%82%D0%B2%D0%BE%D0%B2%D0%B0%D1%82%D1%8C "Russian, to gloat, to feel schadenfreude/epicaricacy.")
+- [Schnapsidee](https://en.wiktionary.org/wiki/Schnapsidee#:~:text=Schnapsidee%20f%20\(genitive%20Schnapsidee%2C%20plural,be%20stupid%20on%20second%20thought. "German, an idea that seems clever/brilliant at first but turns out to be stupid on second thought.")
+- [Fare la scarpetta](https://www.italymagazine.com/featured-story/italian-ritual-fare-la-scarpetta "Italian, the small piece of bread used to mop up the last of the sauce on your plate.")
+- [生きがい](https://www.collinsdictionary.com/dictionary/japanese-english/%E7%94%9F%E3%81%8D%E3%81%8C%E3%81%84 "Japanese, if you describe a particular activity as a way of life for someone, you mean that it has become a very important and regular thing in their life, rather than something they do or experience occasionally.")
+- [Gökotta](https://bigthink.com/neuropsych/gokotta-swedish-experience-nature/ "Swedish, waking up early to experience the stillness of the morning and appreciate the beauty of nature, particularly birdsong.")
+- [L'esprit de l'escalier](https://en.wikipedia.org/wiki/L%27esprit_de_l%27escalier "French, the predicament of thinking of the perfect reply too late.")
+- [L’abbioccio](https://www.italytravelandlife.com/learn-italian/iww-abbiocco/ "Italian, specifically refers to the drowsiness that occurs after enjoying a hearty and abundant meal, capturing that feeling of satisfaction and contentment mixed with a sense of drowsiness that comes from indulging in a large, delicious feast.")
+- [Farpotshket](https://untranslatable.substack.com/p/farpotshket-broken-because-you-tried "Yiddish, doesn't just describe something that is broken, but something that is broken specifically because someone else tried to fix it, making it worse.")
+- [Ubuntu](https://en.wikipedia.org/wiki/Ubuntu_philosophy "Zulu, describes a set of closely related Bantu African-origin value systems that emphasize the interconnectedness of individuals with their surrounding societal and physical worlds.")
+- [Solivagant](https://highparknaturecentre.com/word-of-the-week-solivagant/#:~:text=What%20Does%20the%20Word%20Mean,vagans%E2%80%9D%20meaning%20%E2%80%9Cwander.%E2%80%9D "Latin, to wander alone.")
+- [考背](https://en.wiktionary.org/wiki/%E8%80%83%E8%83%8C#Chinese "Chinese, a crude way to curse someone (i.e. to hope that a person is placed in the position of having to mourn the loss of a parent).")
+- [Sisu](https://en.wikipedia.org/wiki/Sisu "Finnish, variously translated as stoic determination, tenacity of purpose, grit, bravery, resilience, and hardiness.")
+- [关系](https://en.wikipedia.org/wiki/Guanxi "Chinese, to describe an individual's social network of mutually beneficial personal and business relationships.")
+- [Gluggaveður](https://en.wiktionary.org/wiki/gluggave%C3%B0ur "Icelandic, weather that looks appealing from inside but would be unpleasant to be outside in.")
+- [Þetta reddast](https://www.bbc.com/travel/article/20180603-the-unexpected-philosophy-icelanders-live-by "Icelandic, everything will work out all right in the end.")
+- [Uitwaaien](https://en.wiktionary.org/wiki/uitwaaien#:~:text=\(idiomatic\)%20to%20go%20out%20in,oneself%20and%20clearing%20one's%20mind "Dutch, to go out in windy weather, particularly into nature or a park, as a means of refreshing oneself and clearing one's mind.")
+- [Załatwić](https://www.reddit.com/r/DoesNotTranslate/comments/2ns986/polish_za%C5%82atwi%C4%87_i_will_za%C5%82atwi%C4%99_this_it_will_be/ "Polish, the use of friends, bribes, personal charm or connections to get something done.")
+- [Schilderwald](https://en.wiktionary.org/wiki/Schilderwald "German, \"forest of signs\" (i.e. place with excessive signage).")
+- [Treppenwitz](https://en.wiktionary.org/wiki/Treppenwitz "German, an ironic and absurd coincidence; something that, if it were not true, would seem like a bad joke.")
+- [幽玄](https://en.wiktionary.org/wiki/%E5%B9%BD%E7%8E%84 "Japanese, something deep, profound, or unfathomable; deepness or profundity; being unfathomable.")
+- [길치](https://www.hapskorea.com/10-second-korean-gilchi/ "Korean, directionally challenged.")
+- [먹방](https://en.wiktionary.org/wiki/%EB%A8%B9%EB%B0%A9 "Korean, an online video broadcast in which a person eats while interacting with their audience.")
+- [Kaamos](https://en.biginfinland.com/kaamos-polar-night-finland/ "Finnish, also known as the Polar Night, is the time of the year where there are at least 24 consecutive hours of darkness.")
+- [Kummerspeck](https://en.wiktionary.org/wiki/Kummerspeck "German, excess weight or body fat gained due to emotional overeating.")
+- [Tartle](https://www.collinsdictionary.com/submission/3277/Tartle "Scottish, the act of hesitating while introducing someone because you’ve forgotten their name.")
+- [Kilig](https://en.wiktionary.org/wiki/kilig#Tagalog "Tagalog, shiver, shudder, thrill, or frisson from excitement.")
+- [Tutear](https://en.wiktionary.org/wiki/tutear#:~:text=to%20address%20someone%20informally%2C%20using%20the%20pronoun%20tu%2C%20to%20thou "Spanish, to address someone informally, using the pronoun tu, to thou.")
+- [Tretår](https://www.reddit.com/r/DoesNotTranslate/comments/2kfcev/swedish_tretar_a_third_cup_of_coffee/ "Swedish, the third cup of coffee.")
+- [しょうがない](https://en.wiktionary.org/wiki/%E3%81%97%E3%82%87%E3%81%86%E3%81%8C%E3%81%AA%E3%81%84 "Japanese, (of a task or probability) of no use, impossible; hopeless, doomed, screwed.")
+- [Dugnad](https://www.bbc.com/worklife/article/20180521-how-dugnad-shaped-a-nations-work-ethic "Norwegian, literally means help or support in Norwegian, a custom of communal work in Norway that dates back centuries, and one that has existed in some form or another in most agricultural societies around the world.")
+- [Pålegg](https://www.lifeinnorway.net/palegg-explained/ "Norwegian, describes the toppings and spreads that go on to open sandwiches and packed lunches.")
+- [Craic](https://dictionary.cambridge.org/dictionary/english/craic "Irish, enjoyable time spent with other people, especially when the conversation is entertaining and funny.")
+- [Fernweh](https://en.wiktionary.org/wiki/Fernweh "German, wanderlust (desire to travel, a longing for far-off places).")
+- [Dérive](https://en.wikipedia.org/wiki/D%C3%A9rive "French, an unplanned journey through a landscape, usually urban, in which participants stop focusing on their everyday relations to their social environment.")
+- [Prozvonit](https://en.wiktionary.org/wiki/prozvonit "Czech, to flash (to initiate a phone call and stop it before the call is picked, to inform the receiver of something without having to pay for the call).")
+- [Verschlimmbessern](https://en.wiktionary.org/wiki/verschlimmbessern "German, to make something worse in an honest but failed attempt to improve it.")
+- [Terroir](https://en.wikipedia.org/wiki/Terroir "French, used to describe the environmental factors that affect a crop's phenotype, including unique environment contexts, farming practices and a crop's specific growth habitat.")
+- [Drachenfutter](https://en.wiktionary.org/wiki/Drachenfutter#German "German, a gift given to placate someone.")
+- [Weltschmerz](https://en.wikipedia.org/wiki/Weltschmerz "German, a literary concept describing the feeling experienced by an individual who believes that reality can never satisfy the expectations of the mind, resulting in \"a mood of weariness or sadness about life arising from the acute awareness of evil and suffering\".")
+- [Onism](https://www.thedictionaryofobscuresorrows.com/concept/onism#:~:text=In%20philosophy%2C%20monism%20is%20the,oh%2Dniz%2Duhm.%E2%80%9D "Danish, a kind of monism—your life is indeed limited to a single reality by virtue of being restricted to a single body—but something is clearly missing.")
+- [לופֿטמענטש](https://en.wiktionary.org/wiki/%D7%9C%D7%95%D7%A4%D6%BF%D7%98%D7%9E%D7%A2%D7%A0%D7%98%D7%A9 "Yiddish, one more concerned with airy intellectual pursuits than practical matters like earning an income.")
+- [Rebonjour](https://en.wiktionary.org/wiki/rebonjour "French, hello again; hi again.")
+- [Gourmandise](https://www.merriam-webster.com/dictionary/gourmandise "French, appreciation of or interest in good food and drink.")
+- [Goûter](https://www.collinsdictionary.com/dictionary/french-english/go%C3%BBter "French, to have a snack (in the afternoon).")
+- [Si](https://www.commeunefrancaise.com/blog/si-in-french "French, Si can be translate in some way to Yes. but specifically the word designates a yes which responds to erroneous information in order to correct it for exemple \"tu n'as pas faim ?\" (You are not hungry ?)  \"Si j'ai très faim\" (wrong I am hungry)")
+- [Connaître](https://chatterbug.com/grammar/french/savoir-connaitre-to-know "Savoir, means to know someone or something, which is different from knowing fact.")
+- [Bouquiner](https://en.wiktionary.org/wiki/bouquiner "French, to read constantly (for pleasure).")
+- [Wpierdol](https://en.wiktionary.org/wiki/wpierdol "Vulgar, a noun for severly beating somebody.")
+- [Meriggiare](https://en.wiktionary.org/wiki/meriggiare "Italian, to rest in the shade (in the afternoon).")
+- [Erklärungsnot](https://germanyinusa.com/2019/05/02/word-of-the-week-erklarungsnot/ "German, describes a state in which you are put on the spot without an explanation or excuse for your actions.")
+- [नमस्ते](https://en.wikipedia.org/wiki/Namaste "Hindi, a customary Hindu manner of respectfully greeting and honouring a person or group, used at any time of day.")
+- [ᐃᒃᑦᓱᐊᕐᐳᒃ](https://en.wiktionary.org/wiki/iktsuarpok "Inuit, the feeling of anticipation while waiting for someone to arrive, often leading to intermittently going outside to check for them.")
+- [Lagom](https://en.wikipedia.org/wiki/Lagom "Swedish, 'just the right amount' or 'not too much, not too little'.")
+- [Friolero](https://en.wiktionary.org/wiki/friolero "Spanish, nesh, shivery, cold-sensitive (of a person: susceptible and sensitive to cold weather, prone to easily feeling cold).")
+- [Estrenar](https://www.spanishdict.com/translate/estrenar "Spanish, to utilize for the first time.")
+- [ネカマ](https://en.wiktionary.org/wiki/%E3%83%8D%E3%82%AB%E3%83%9E "Japanese, a man who pretends to be a woman online.")
+- [Handschuhschneeballwerfer](https://sweetfootjourneys.com/handschuhschneeballwerfer/ "German, a coward, someone who criticizes from a safe distance.")
+- [Skämskudde](https://en.wiktionary.org/wiki/sk%C3%A4mskudde#Swedish "Swedish, a real or imagined pillow used to cope with the awkward feeling caused by witnessing something embarrassing; literally \"embarrassment pillow\".")
+- [Poronkusema](https://en.wiktionary.org/wiki/poronkusema "Finnish, the distance a reindeer could travel without stopping to urinate.")
+- [默契](https://en.wiktionary.org/wiki/%E9%BB%98%E5%A5%91 "Chinese, having a secret agreement, tacit understanding or implicit recognition.")
+- [Fika](https://swedishfood.com/fika "Swedish, making time for friends and colleagues to share a cup of coffee (or tea) and a little something to eat.")
+- [Fachidiot](https://www.collinsdictionary.com/submission/1182/fachidiot#:~:text=Noun.,approach%20to%20multi%2Dfaceted%20problems. "German, a derogatory term for a one-track specialist who is an expert in his field, but takes a blinkered approach to multi-faceted problems.")
+- [Chutzpah](https://en.wikipedia.org/wiki/Chutzpah "Yiddish, the quality of audacity, for good or for bad.")
+- [листопа́дъ](https://en.wiktionary.org/wiki/%D0%BB%D0%B8%D1%81%D1%82%D0%BE%D0%BF%D0%B0%D0%B4#Russian "Russian, autumn fall of the leaves.")
+- [Schwellenangst](https://en.wiktionary.org/wiki/Schwellenangst "German, a fear of, or aversion to, crossing a threshold or entering a place to begin a new chapter.")
+- [改善](https://en.wiktionary.org/wiki/%E6%94%B9%E5%96%84 "Chinese/Japanese, to improve; to better.")
+- [Sitzfleisch](https://www.bbc.com/worklife/article/20180903-to-have-sitzfleisch---its-a-professional-compliment "German, \"sitting meat\", the ability to sit still for the long periods of time required to be truly productive; it means the stamina to work through a difficult situation and see a project through to the end.")
+- [珍道具](https://en.wikipedia.org/wiki/Chind%C5%8Dgu "Japanese, the practice of inventing ingenious everyday gadgets that seem to be ideal solutions to particular problems, but which may cause more problems than they solve.")
+- [Cavoli riscaldati](https://www.italytravelandlife.com/learn-italian/iww-cavoli-riscaldati/ "Italian, commonly used to describe an attempt to make a doomed relationship work, restart a failed relationship, or pass off something old as new.")
+- [Culaccino](https://www.italytravelandlife.com/learn-italian/iww-culaccino/#:~:text=The%20word%20'culaccino'%20is%20derived,drink%20left%20in%20your%20glass. "Italian, the annoying ring left on a wooden surface by a cold glass or cup.")
+- [Vacilando](https://vacilandoblog.wordpress.com/about/ "Spanish, the act of wandering when the experience of travel is more important than reaching the specific destination.")
+- [Torschlusspanik](https://en.wiktionary.org/wiki/Torschlusspanik#:~:text=Torschlusspanik%20f%20\(genitive%20Torschlusspanik%2C%20no,to%20act%20is%20running%20out\) "German, eleventh hour panic (the fear that time to act is running out).")
+- [Mysa](https://blog.cattiecoylephotography.com/sweden/mysa-next-hygge/#:~:text=Mysa%2C%20The%20Swedish%20Hygge&text=It's%20very%20similar%20to%20hygge,it%20with%20all%20your%20senses. "Swedish, being relaxed in a specific environment.")
+- [تراض](https://wordsoftheworlds.substack.com/p/taarradhin-a-win-win-solution-for "Arabic, used as a verb in some dialects when asking someone to come to peace or resolve a dispute with the person who uses that certain word.")
+- [バックシャン](https://en.wiktionary.org/wiki/%E3%83%90%E3%83%83%E3%82%AF%E3%82%B7%E3%83%A3%E3%83%B3 "Japanese, a woman who is attractive from behind, usually in reference to her buttocks.")
+- [Mencolek](https://www.bkconnection.com/bkblog/jeevan-sivasubramaniam/words-from-other-languages-we-need-in-english-mencolek "Indonesian, a trick about tapping someone's opposite shoulder.")
+- [積ん読](https://en.wiktionary.org/wiki/%E7%A9%8D%E3%82%93%E8%AA%AD "Japanese, the act of leaving a book unread after buying it, typically piled up together with other such unread books.")
+- [Voorpret](https://en.wiktionary.org/wiki/voorpret "Dutch, joy or pleasure ahead and in anticipation of the actual fun event.")
+- [Καιρός](https://en.wiktionary.org/wiki/%CE%BA%CE%B1%CE%B9%CF%81%CF%8C%CF%82 "Greek, measure; proportion; fitness.")
+- [热闹](https://en.wiktionary.org/wiki/%E7%86%B1%E9%AC%A7 "Chinese, excitement; fun.")
+- [Shemomedjam](https://www.bkconnection.com/bkblog/jeevan-sivasubramaniam/words-we-need-in-english-shemomedjamo "Georgian, not wanting to stop because the food is so tasty and ends up causing discomfort.")
+- [Elmosolyodni](https://www.pinterest.com/pin/467248530061069008/ "Hungarian, to slowly break out into a genuine smile when being overcome with emotions, like love or utter happiness.")
+- [見外](https://en.wiktionary.org/wiki/%E8%A6%8B%E5%A4%96 "Chinese, to be overly polite with someone; to stand on ceremony; to treat someone like a stranger; to regard someone as an outsider.")
+- [Schlimmbesserung](https://germanyinusa.com/2017/12/22/word-of-the-week-schlimmbesserung/#:~:text=\(Ver\)Schlimmbesserung%20is%20a%20noun,been%20around%20since%20medieval%20times. "German, describing an intended improvement that has an opposite effect.")
+- [La douleur exquise](https://job-in-france.babylangues.com/intraduisibles/untranslatable-la-douleur-exquise/ "French, the feeling of wanting someone that you know you can never have, and knowing that you still want to be with them.")
+- [जिजीविषा](https://en.wiktionary.org/wiki/%E0%A4%9C%E0%A4%BF%E0%A4%9C%E0%A5%80%E0%A4%B5%E0%A4%BF%E0%A4%B7%E0%A4%BE "Hindi, the life instinct; will or desire to live.")
+- [Trepverter](https://thegln.org/word-of-the-week-trepverter/ "Yiddish, retorts that came toothete, when you were already on your way down the stairs.")
+- [Nepakartojama](https://www.pinterest.com/pin/616782111457423089/ "Lithuanian, retorts that came toothete, when you were already on your way down the stairs.")
+- [Fensterln](https://en.wiktionary.org/wiki/fensterln#German "German, to visit a girl, who is the object of one's affections, at night either by coming to her window or by climbing through it into her room.")
+- [Trouvaille](https://www.merriam-webster.com/dictionary/trouvaille "French, a lucky find.")
+- [Vedriti](https://wordsoftheworlds.substack.com/p/vedriti-the-slovenian-word-for-taking "Slovenian, sheltering from the rain.")
+- [Faamiti](https://www.bkconnection.com/bkblog/jeevan-sivasubramaniam/words-from-other-languages-we-need-in-english-faamiti "Samoan, a high-pitched squeaky noise that results when sucking in air against lightly pursed lips.")
+- [ぼけっと](https://en.wiktionary.org/wiki/%E3%81%BC%E3%81%91%E3%81%A3%E3%81%A8 "Japanese, the act of staring vacantly without doing anything.")
+- [Sitzzwerg](https://en.wiktionary.org/wiki/Sitzzwerg#German "German, a person who appears much shorter when they are sitting than when they stand, e.g. because of their being short-waisted or their individual sitting posture.")
+- [Sgrìob](https://katexic.com/word/sgriob/ "Scottish, an itching of the lip, superstitiously supposed to precede a feast or a kiss from a favorite.")
+- [建前 and 本音](https://en.wikipedia.org/wiki/Honne_and_tatemae "Japanese, Honne refers to a person's true feelings and desires, and tatemae refers contrastingly to the behavior and opinions one displays in public.")
+- [Kombinować](https://en.wiktionary.org/wiki/kombinowa%C4%87 "Polish, to get creative, to finagle, to fainaigue, to wangle, to weasel (to try to resolve a problem with unusual ways).")
+- [Lebensmüde](https://en.wiktionary.org/wiki/lebensm%C3%BCde "German, weary of life.")
+- [Resfeber](https://www.wordgenius.com/words/resfeber "Swedish, the tangled feeling of fear and excitement before a journey begins; the restless race of the traveller's heart in anticipation of travel.")
+- [Novaturient](https://donnawrites.com/beautiful-words-novaturient/ "Latin, desiring or seeking powerful change in one’s life, behavior, or situation.")
+- [Jayus](https://en.wiktionary.org/wiki/jayus "Indonesian, a joke that amuses because it is so unfunny or poorly told.")
+- [Badkruka](https://en.wiktionary.org/wiki/badkruka "Swedish, someone reluctant to bathe outdoors (due to the water being cold).")
+- [Attaccabottoni](https://en.wiktionary.org/wiki/attaccabottoni "Italian, buttonholer (person who holds someone in a long conversation against their will).")
+- [פירגון](https://en.wiktionary.org/wiki/%D7%A4%D7%99%D7%A8%D7%92%D7%95%D7%9F "Hebrew, genuine delight or pride in another person's achievement or in something good that has happened or may happen to another person.")
+- [ஊடல்](https://www.quora.com/What-is-the-meaning-of-the-Tamil-word-oodal "Tamil, a small conflict between lovers.")
+- [Afturbatapíka](https://en.wiktionary.org/wiki/afturbatap%C3%ADka#Icelandic "Icelandic, an unwed girl who has had a child, which has since been forgotten, resulting in her being considered a virgin again.")
+- [Jaksaa](https://en.wiktionary.org/wiki/jaksaa#Finnish "Finnish, to manage, to get by, to have strength, energy, or stamina.")
+- [Besa](https://en.wikipedia.org/wiki/Besa_\(Albanian_culture\) "Albanian, \"to keep the promise\" and \"word of honor\", regarded as something sacred and inviolable.")
+- [教育ママ](https://en.wikipedia.org/wiki/Ky%C5%8Diku_mama "Japanese, a mother who relentlessly drives her child to study, to the detriment of the child's social and physical development, and emotional well-being.")
+- [Goya](https://www.reddit.com/r/DoesNotTranslate/comments/3mf2o2/urdu_%DA%AF%D9%88%DB%8C%D8%A7_goya_a_momentary_suspension_of/ "Urdu, a momentary suspension of disbelief that occurs when fantasy is so realistic that it temporarily becomes reality, usually associated with a story very well told.")
+- [上げ劣り](https://www.japandict.com/%E4%B8%8A%E3%81%92%E5%8A%A3%E3%82%8A "Japanese, looking worse after putting up one's hair (when coming of age).")
+- [Hanyauku](https://en.wiktionary.org/wiki/hanyauku "Rukwangali, to walk on tiptoes across a hot surface.")
+- [Arbejdsglæde](https://timetastic.co.uk/blog/arbejdsglaede-the-danish-concept-of-happiness-at-work/ "Danish, happiness at work.")
+- [Dominguero](https://forum.wordreference.com/threads/dominguero.1574231/ "Spanish, weekend tripper.")
+- [失獨](https://en.wiktionary.org/wiki/%E5%A4%B1%E7%8D%A8#Mandarin "Chinese, (of parents) to lose one's only child (and be yet unable to have another one due to old age or government policy).")
+- [Madrugada](https://en.wiktionary.org/wiki/madrugada "Spanish, Portuguese, the period between midnight and sunrise; early morning.")
+- [Pena ajena](https://mexicanspanish.com/articles/pena-ajena "Spanish, embarrassment (for something awkward that you've done) and shame (for something immoral you have done).")
+- [Desenrascanço](https://en.wiktionary.org/wiki/desenrascan%C3%A7o "Portuguese, the ability to find improvised solutions to problems.")
+- [Sitzriese](https://en.wiktionary.org/wiki/Sitzriese#German "German, a person who appears much taller when they are sitting than when they stand, e.g. because of their being long-waisted or their individual sitting posture.")
+- [Mokita](https://www.urbandictionary.com/define.php?term=mokita "Kivila, a truth everybody knows but nobody speaks.")
+- [고소하다](https://koreanyoumaynotknow.quora.com/Understanding-Korean-words-%EA%B3%A0%EC%86%8C%ED%95%98%EB%8B%A4-%EB%8B%B5%EB%8B%B5%ED%95%98%EB%8B%A4 "Korean, to taste or smell nutty.")
+- [Extrawunsch](https://theuntranslatablewords.tumblr.com/post/118149080292/extrawunsch "German, someone who slows down and complicates a process by being picky.")
+- [Dépaysement](https://en.wiktionary.org/wiki/d%C3%A9paysement "French, the feeling of not being at home, in a foreign or different place, whether a good or a bad feeling; change of scenery.")
+- [ありがためいわく](https://en.wiktionary.org/wiki/%E3%81%82%E3%82%8A%E3%81%8C%E3%81%9F%E8%BF%B7%E6%83%91 "Japanese, unwelcome favour; mixed blessing; white elephant; too much of a good thing.")
+- [Duktig](https://en.wiktionary.org/wiki/duktig "Swedish, skilled; clever; good; hard-working; diligent (showing \"good\" behavior, in an extended sense that includes both being good at something and behaving well).")
+- [Aspaldiko](https://languagedepartment.com/beautiful-untranslatable-words-from-around-the-world-aspaldiko/ "Basque, describes the feeling of happiness when catching up with someone you haven’t seen in a long time.")
+- [Запой](https://en.wikipedia.org/wiki/Zapoy "Russian, a term used in Russia and other post-Soviet states to describe alcohol abuse behavior resulting in two or more days of continuous drunkenness.")
+- [Kaapshljmurslis](https://x.com/presentcorrect/status/619039675479625728 "Latvian, a person who is cramped while riding public transportation.")
+- [שלימזל](https://en.wiktionary.org/wiki/%D7%A9%D7%9C%D7%99%D7%9E%D7%96%D7%9C "Yiddish, unlucky person, luckless person, person with perpetual bad luck.")
+- [Forelsket](https://en.wiktionary.org/wiki/forelsket "Norwegian, in love, enamored.")
+- [Epibreren](https://directdutch.com/2013/10/word-of-the-day-epibreren-epibrate/ "Dutch, perform unspecified activities which should give the impression that they are important, even though they don’t amount to anything.")
+- [Livsnjutare](https://en.wiktionary.org/wiki/livsnjutare "Swedish, an enjoyer of life, a bon vivant, a hedonist (person who enjoys the good things in life).")
+- [Dracher](https://en.wiktionary.org/wiki/dracher "North France and Belgium, to pour, rain hard, to chuck it down.")
+- [Peripatetic](https://www.vocabulary.com/dictionary/peripatetic "Greek, a person who walks from place to place.")
+- [نعم البدل](https://en.wiktionary.org/wiki/%D9%86%D8%B9%D9%85_%D8%A7%D9%84%D8%A8%D8%AF%D9%84#Urdu "Urdu, better alternative, change for the better (especially, but not limited to, after incurring a loss).")
+- [Pisan Zapra](https://www.malaymail.com/news/opinion/2020/02/23/pisan-zapra-does-it-even-mean-anything/1839986 "Malay, the time it takes to finish eating a banana.")
+- [Soare cu Dinti](https://www.overstuffedlife.com/soare-cu-dinti/ "Romanian, \"sun with teeth\", used to describe one of those beautiful winter (or fall, or even spring) days where the sun is shining, the sky is blue, but you’ll still freeze to death if you go outside.")
+- [Tampó](https://www.quora.com/What-is-the-meaning-of-tampo "Tagalog, refers to a behavior in which a person withdraws his or her affection or cheerfulness from a person who has hurt his or her feelings.")
+- [Fahrvergnügen](https://germanyinusa.com/2011/10/21/word-of-the-week-fahrvergnugen/ "German, the enjoyment or pleasure Germans derive from driving their cars.")
+- [Vouvoyer / Tutoyer](https://en.wikipedia.org/wiki/T%E2%80%93V_distinction "French, Spanish, etc. The contextual use of different pronouns that exists in some languages and serves to convey formality or familiarity.")
+- [Duende](https://en.wikipedia.org/wiki/Duende_\(art\) "Spanish, a heightened state of emotion, expression and authenticity, often connected with flamenco.")
+- [Ailyak](https://wordsoftheworlds.substack.com/p/ailyak-the-bulgarian-word-for-the "Bulgarian, living life slowly.")
+- [Vobba](https://en.wiktionary.org/wiki/vobba "Swedish, to stay at home to work for the purpose of caring for a sick child.")
+- [Cúbóg](https://blogs.transparent.com/irish/an-dara-diochlaonadh-eggs-and-legs-clutches-and-hutches/#:~:text=c%C3%BAb%C3%B3g%2C%20a%20batch%20of%20Easter,word%20for%20eggs%20\(uibheacha\). "Irish, a batch of Easter eggs.")
+- [Fisselig](https://www.reddit.com/r/adhdwomen/comments/15h77e3/everything_is_fisselig/ "German, something thin or delicate, which requires a steady hand, skilled handwork, and/or small hands.")
+- [Myötähäpeä](https://en.wiktionary.org/wiki/my%C3%B6t%C3%A4h%C3%A4pe%C3%A4 "Finnish, secondhand embarrassment, vicarious embarrassment (personal embarrassment one feels on account of and for another who is making a fool of him or herself).")
+- [Coisar](https://en.wiktionary.org/wiki/coisar#Portuguese "Portuguese, a placeholder verb used when the speaker does not remember a specific verb, and whose meaning can be inferred through context.")
+- [Hyppytyynytyydytys](https://www.reddit.com/r/DoesNotTranslate/comments/746bpr/finnish_hyppytyynytyydytys/?tl=zh-hans "Finnish, the joy and satisfaction gained from sitting or jumping on a trampoline mat.")
+- [Commovente](https://en.wiktionary.org/wiki/commovente "Italian, touching, moving, affecting.")
+- [Ciğerpare](https://www.redbubble.com/i/poster/Ci%C4%9Ferpare-Turkish-Beautiful-Word-Definition-Typewriter-by-Zooone/144460965.LVTDI "Turkish, \"liver part\", someone you love as much as your own body; darling.")
+- [Kilkanaście](https://en.wiktionary.org/wiki/kilkana%C5%9Bcie "Polish, a number between eleven and nineteen; umpteen, something-teen.")
+- [Desvelado](https://dictionary.cambridge.org/us/dictionary/spanish-english/desvelado "Spanish, (of a night) in which one gets little sleep.")
+- [Retrouvailles](https://blog.rosettastone.com/words-beyond-translation-retrouvailles/ "French, the experience of reconnecting with someone close to you, particularly after spending time apart.")
+- [Harkla](https://en.wiktionary.org/wiki/harkla "Swedish, to clear one's throat.")
+- [دلتنگی](https://en.wiktionary.org/wiki/%D8%AF%D9%84%D8%AA%D9%86%DA%AF%DB%8C#Persian "Persian, longing, missing (a person, a place).")
+- [Tokka](https://en.wiktionary.org/wiki/tokka#Finnish "Finnish, a large herd, especially of reindeer.")
+- [Bricoleur](https://en.wiktionary.org/wiki/bricoleur#French "French, skillful, handyman-like, able to DIY.")
+- [Manja](https://www.quora.com/What-is-the-meaning-of-manja "Malay, an abrasive string used for fighter kites in Afghanistan, Bangladesh, India, Nepal and Pakistan and is gummed, coloured and coated with powdered glass.")
+- [横飯](https://tinywagashi.tumblr.com/post/132947540106/%E6%A8%AA%E9%A3%AF-yokomeshi "Japanese, the feeling of panic when trying to speak Japanese (or write it).")
+- [職業病](https://www.reddit.com/r/DoesNotTranslate/comments/sogmsj/japanese_%E8%81%B7%E6%A5%AD%E7%97%85_%E3%81%97%E3%82%87%E3%81%8F%E3%81%8E%E3%82%87%E3%81%86%E3%81%B3%E3%82%87%E3%81%86_occupational_disease_slang/ "Japanese, something you can't resist doing (whether you like it or not) because you do it all the time at work.")
+- [Jobbig](https://en.wiktionary.org/wiki/jobbig "Swedish, onerous, arduous, difficult, tiring, requiring or using a lot of energy or strength.")
+- [Loskop](https://greensdictofslang.com/entry/ilfaqxi#:~:text=%5Bloskop%20n.%5D,crazy%2C%20forgetful%2C%20eccentric. "Afrikaans, crazy, forgetful, eccentric.")
+- [онакви](https://en.wiktionary.org/wiki/%D0%BE%D0%BD%D0%B0%D0%BA%D0%B2%D0%B8#Macedonian "Macedonian, a dummy verb used when the speaker cannot recall or wished to avoid the precise term.")
+- [Blunda](https://en.wiktionary.org/wiki/blunda#Swedish "Swedish, to refuse to see something; to pretend not to know about.")
+- [Vabba](https://en.wiktionary.org/wiki/vabba "Swedish, to stay at home from work to care for a sick child (a legal form of sick leave in Sweden).")
+- [حلیہ](https://en.wiktionary.org/wiki/%D8%AD%D9%84%DB%8C%DB%81#Urdu "Urdu, demeanour or more strictly - the countenance, face; (by extension) the description of a person.")
+- [Litost](https://en.wiktionary.org/wiki/l%C3%ADtost "Czech, remorse, repentance (a feeling of regret or remorse for doing wrong).")
+- [Tuerto](https://en.wiktionary.org/wiki/tuerto#Spanish "Spanish, one-eyed, blind in one eye.")
+- [Cafuné](https://en.wiktionary.org/wiki/cafun%C3%A9 "Portuguese, the act of fondling or caressing someone's head.")
+- [Yaourt](https://en.wiktionary.org/wiki/yaourt#French "French, a song where the singer makes up the words as they're singing, either as dummy lyrics as part of the songwriting process, or because the singer doesn't know the real lyrics of an existing song; used primarily with a verb: chanter en yaourt.")
+- [φιλότιμο](https://en.wikipedia.org/wiki/Philotimo "Greek, \"love of honor\", describes a complex array of virtues.")
+- [Glas wen](https://x.com/dialogueuk_/status/1266002032537882625?lang=en "Welsh, \"blue smile\", a smile that is sarcastic or mocking.")
+- [разлюбить](https://en.wiktionary.org/wiki/%D1%80%D0%B0%D0%B7%D0%BB%D1%8E%D0%B1%D0%B8%D1%82%D1%8C "Russian, to fall out of love (with) someone, to stop loving.")
+- [Dożywocie](https://en.wiktionary.org/wiki/do%C5%BCywocie "Polish, notarial contract ceding real estate in exchange for lifelong care.")
+- [Zhaghzhagh](https://x.com/qikipedia/status/1323686383911919616?lang=en "Persian, the uncontrollable chattering of teeth.")
+- [онади](https://en.wiktionary.org/wiki/%D0%BE%D0%BD%D0%B0%D0%B4%D0%B8#Macedonian "Macedonian, A dummy verb used when the speaker cannot recall or wishes to avoid the precise term.")
+- [Weichei](https://en.wiktionary.org/wiki/Weichei "German, wimp, wuss, softy.")
+- [Tima](https://eunoia.world/?words%5Bword%5D=&words%5Blanguagetag%5D=Icelandic&words%5Btag%5D= "Icelandic, not being ready to spend time or money on a specific thing, despite being able to afford it.")
+- [Encandilar](https://www.spanishdict.com/translate/encandilar "Spanish, to dazzle.")
+- [Gattara](https://en.wiktionary.org/wiki/gattara "Italian, a woman catlover who feeds alley cats or spends time with domestic cats; a cat lady.")
+- [猫舌](https://en.wiktionary.org/wiki/%E7%8C%AB%E8%88%8C#Japanese "Japanese, the inability to eat or drink anything hot due to one having an overly sensitive tongue.")
+- [恋の予感](https://www.quora.com/What-does-Koi-no-Yokan-mean "Japanese, a hunch for love.")
+- [Dustsceawung](https://www.reddit.com/r/German/comments/phou8w/dustsceawung/ "Old English, contemplation of the fact that dust used to be other things - the walls of a city, the chief of the guards, a book, a great tree: dust is always the ultimate destination.")
+- [Tidsoptimist](https://en.wiktionary.org/wiki/tidsoptimist#Swedish "Swedish, someone who is optimistic about how much time they have (to prepare for something), who is therefore often late.")
+- [однолюб](https://www.online-translator.com/translation/russian-english/%D0%BE%D0%B4%D0%BD%D0%BE%D0%BB%D1%8E%D0%B1 "Russian, one-woman man.")
+- [Mormor / Farmor / Morfar / Farfar](https://www.reddit.com/r/DoesNotTranslate/comments/5kc8sb/swedish_farmor_mormor_farfar_morfar_separate/ "Swedish, fathermother, mothermother, fatherfather and motherfather.")
+- [عیادت](https://en.wiktionary.org/wiki/%D8%B9%DB%8C%D8%A7%D8%AF%D8%AA#Urdu "Urdu, enquiry or visit of well-being (of a patient or sick person).")
+- [سمر](https://en.wiktionary.org/wiki/%D8%B3%D9%85%D8%B1 "Arabic, to keep watch, preserve, to stay awake, to speak at night, to speak late at night, to live night-life, to be around at night (of people and animals).")
+- [Pana Po’o](https://rasjacobson.com/tag/pano-poo/ "Hawaiian, to scratch your head while thinking, especially when trying to remember something forgotten.")
+- [Ilunga](https://en.wikipedia.org/wiki/Ilunga "Tshiluba, a person who is ready to forgive any abuse for the first time, to tolerate it a second time, but never a third time.")
+- [Házisárkány](https://hu.wiktionary.org/wiki/h%C3%A1zis%C3%A1rk%C3%A1ny "Hungarian, \"domestic dragon\", often used as a nickname for a spouse or partner, specifically one who is perceived as constantly nagging or being difficult to deal with.")
+- [Spregledati](https://fran.si/iskanje?View=1&Query=spregledati "Slovenian, not noticing or overlooking something.")
+- [Mít kliku](https://get-to-know-cz.tumblr.com/post/148844617862/m%C3%ADt-kliku "Czech, \"to have a door handle\", to be lucky.")
+- [Radioukacz](https://www.vagablogging.net/the-most-untranslatable-word-in-the-world.html "Polish, a person who worked as a telegraphist for the resistance movements on the Soviet side of the Iron Curtain.")
+- [Eleutheromania](https://en.wiktionary.org/wiki/eleutheromania "(from) Ancient Greek, a great desire for or obsession with freedom.")
+- [παρέα](https://en.wiktionary.org/wiki/%CF%80%CE%B1%CF%81%CE%AD%CE%B1 "Greek, company of friends, fellowship, party.")
+- [เที่ยว](https://en.wiktionary.org/wiki/%E0%B9%80%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7 "Thai, to travel; to tour; to wander; to go (from place to place).")
+- [μεράκι](https://en.wiktionary.org/wiki/%CE%BC%CE%B5%CF%81%CE%AC%CE%BA%CE%B9 "Greek, zeal for the actualization of a desire, or the emotion associated with such a zeal.")
+- [Karelu](https://x.com/K_International/status/563336742225584129 "Tulu, the mark left on the skin when wearing something tight.")
+- [Orka](https://en.wiktionary.org/wiki/orka#Swedish "Swedish, to have strength, will, or stamina enough.")
+- [Vitja nafns](https://en.wiktionary.org/wiki/vitja_nafns#Icelandic "Icelandic, to appear in the dream of a pregnant woman and suggest a name for her child.")
+- [Tingo](https://www.npr.org/2006/05/13/5403332/tingo-tracks-words-without-equal-in-english "Pascuense, to borrow objects from a friends house, one by one, until there's nothing left.")
+- [चाय पानी](https://x.com/TranslationsITL/status/738693275389943808 "Hindi, \"tea and water\", favours/money given to get job done.")
+- [Hinna](https://en.wiktionary.org/wiki/hinna#Swedish "Swedish, to have time, to have the time (for something), (sometimes, idiomatically) to make it.")
+- [Leiliviskaja](https://x.com/qikipedia/status/1301877675678511104 "Estonian, a person who throws water on to hot rocks at a sauna to make more steam.")
+- [Ψυθισμός](https://x.com/MuchAdoClub/status/1334363648177762304 "Greek, for describing the sound of rustling leaves or wind on trees.")
+- [ঘোড়ার ডিম](https://en.m.wiktionary.org/wiki/%E0%A6%98%E0%A7%8B%E0%A6%A1%E0%A6%BC%E0%A6%BE%E0%A6%B0_%E0%A6%A1%E0%A6%BF%E0%A6%AE "Bengali, \"horse’s egg\", thus indicating something that is fantastic or absurd.")
+- [Suilk](https://www.dsl.ac.uk/entry/snd/suilk "Scottish, to swallow with a slobbering noise, to gulp, suck in.")
+- [Dor](https://kingofromania.com/2019/01/05/romanians-special-word-dor/#:~:text=Philology,%2De%20dor%20de%20acasa\). "Romanian, “to miss someone” or “to miss something.”")
+- [Formacja](https://contentcatnip.com/2021/10/04/eight-words-in-polish-that-have-no-english-equivalent/#:~:text='Formacja'%20can%20be%20described%20as,to%20a%20generation%20or%20era. "Polish, can be described as a mind-set and a way of thinking that’s particular to a generation or era.")
+- [plʔɛŋ](https://en.wiktionary.org/wiki/pl%CA%94%C9%9B%C5%8B#Jehai "Jehai, to have a blood-like smell that attracts tigers and leopards (like crushed head lice; the blood of most rodents and civets, gibbons, and some other animals; cooked wild lemongrass; and stagnant water).")
+- [Hantâ](https://en.wiktionary.org/wiki/hant%C3%A2#Hadza "Hadza, an exclamation made upon making or finding a kill of zebra.")
+- [почемучка](https://en.wiktionary.org/wiki/%D0%BF%D0%BE%D1%87%D0%B5%D0%BC%D1%83%D1%87%D0%BA%D0%B0 "Russian, person, often a child, who asks a lot of questions.")
+- [Gigil](https://www.bbc.com/culture/article/20170714-an-untranslatable-word-for-pure-joy "Tagalog, describes how many feel in the presence of overwhelming cuteness.")
+- [渋い](https://en.wiktionary.org/wiki/%E6%B8%8B%E3%81%84#Japanese "Japanese, astringent in taste, bitter; elegant, refined, and tastefully quiet, not brash.")
+- [Vetja](https://en.wiktionary.org/wiki/vetja#Swedish "Swedish, indicates encouragement to do something.")
+- [Murr-ma](https://themindsjournal.com/quotes/murr-ma/ "Wagiman, to walk along in the water searching for something with your feet.")
+- [Papakata](https://www.pinterest.com/pin/438608451185167004/ "Māori, to have one leg shorter than the other.")
+- [Akihi](https://johndabell.com/2021/07/31/when-children-go-all-aikhi/ "Hawaiian, listening to directions and then walking off and promptly forgetting them.")
+- [Yr](https://en.wiktionary.org/wiki/yr#Norwegian_Bokm%C3%A5l "Norwegia, drizzle; a myriad, swarm; cheerful, jolly, merry.")
+- [غیرت](https://en.wiktionary.org/wiki/%D8%BA%DB%8C%D8%B1%D8%AA#Persian "Persian, \"protective jealousy\", honor, possessiveness; an emotion which drives one to protect one's family members from the other gender's attention and thereby defend one's pride and honor.")
+- [Lieko](https://en.wiktionary.org/wiki/lieko "Finnish, fallen, rotten tree, especially one that is in water.")
+- [Wihajster](https://en.wiktionary.org/wiki/wihajster "Polish, placeholder for a thing with an unknown name, thingamajig, whatsit, whatchamacallit (especially an elongated tool or part of a mechanical device).")
+- [Spleen](https://fr.wikipedia.org/wiki/Spleen_baudelairien "French, it's an English term, but in french this term have another sens")
+#  [Words By Length Iceberg](https://icebergcharts.com/i/Words_By_Length) 📋
+  [
+](https://reddit.com/submit/?url=https%3A%2F%2Ficebergcharts.com%2Fi%2FWords_By_Length&resubmit=true&title=Words%20By%20Length%20Iceberg%20Chart) [
+](https://mastodon.social/share?text=Words%20By%20Length%20Iceberg%20Chart&url=https%3A%2F%2Ficebergcharts.com%2Fi%2FWords_By_Length) [
+](https://icebergcharts.com/i/Words_By_Length/image)
+#  work in progress proposals wanted
+this is probably one of the stupidest ideas ive had in a long time  
+please add proposals, i can't possibly think of every word in existence  
+language categories will be added as more words in different languages are  
+words with duplicate spellings are allowed as long as the language is specified
+english
+## 1-2 letters
+- I
+- [a](https://www.dictionary.com/browse/a)
+- as
+- he
+- ah
+- no
+- at
+- it
+- Im
+- so
+- hi
+- Al
+- of
+- we
+- me
+- up
+## 3-4 letters
+- was
+- well
+- sun
+- the
+- they
+- then
+- them
+- fuck
+- car
+- seat
+- this
+- her
+- say
+- says
+- shit
+- sea
+- see
+- red
+- read
+- sew
+- sue
+- pick
+- pike
+- pint
+- puck
+- pack
+- thy
+- john
+- rat
+- rats
+- drum
+- key
+- keys
+- twin
+- what
+- when
+- why
+- who
+- how
+- exit
+- said
+- city
+- town
+- pool
+- ego
+- tie
+- ties
+- suck
+- thus
+- and
+- open
+- day
+- home
+- gun
+- song
+- ants
+- old
+- dark
+- side
+- moon
+- wish
+- here
+- wall
+- pimp
+- damn
+- good
+- soul
+- funk
+- king
+- for
+- teen
+- door
+- less
+- doom
+- saw
+- bear
+- mask
+- pig
+- trap
+- lost
+- oven
+- mega
+- head
+- bed
+## 5-6 letters
+- these
+- sheet
+- sheets
+- Steve
+- rather
+- where
+- there
+- sister
+- snares
+- hitch
+- synth
+- piano
+- effect
+- affect
+- aphex
+- deeper
+- darker
+- excite
+- entry
+- stupid
+- words
+- switch
+- sober
+- length
+- cheese
+- light
+- stream
+- close
+- closed
+- sleep
+- haunt
+- [boxing](https://www.dictionary.com/browse/boxing)
+- afford
+- remind
+- homes
+- jerks
+- after
+- broken
+- birds
+- crown
+- heart
+- seven
+- eight
+- eleven
+- twelve
+- twenty
+- thirty
+- fifty
+- wrong
+- right
+- write
+- death
+- beach
+- birth
+- young
+- birch
+- famous
+- those
+- songs
+- sewer
+- final
+- [anima](https://www.dictionary.com/browse/anima)
+- style
+- denial
+- making
+- super
+- energy
+- aback
+- abacus
+- frozen
+- brain
+- damage
+- radio
+- skull
+- pause
+## 7-8 letters
+- headrest
+- goodbye
+- prophet
+- fantasy
+- animals
+- iceberg
+- section
+- untitled
+- unnamed
+- universe
+- panther
+- aardvark
+- abandon
+- macabre
+- [Cadbury](https://www.dictionary.com/browse/cadbury)
+- eclipse
+- cranium
+- progress
+## 9-10 letters
+- monomania
+- northwest
+- dedicated
+- unmastered
+- deadlines
+- generation
+- abacterial
+## 11-13 letters
+- Infinitesimal
+- smithereens
+- baccalaureate
+## 14-16 letters
+- macroclimatology
+## 17-20 letters
+## 21-25 letters
+- Thyroparathyroidectomized
+- Dichlorodifluoromethane
+- Incomprehensibilities
+- anticonstitutionnellement
+- contraventionnalisation
+- hyperprésidentialisation
+- hyperprésidentialisation
+## 26-50 letters
+- Pneumonoultramicroscopicsilicovolcanoconiosis
+- Supercalifragilisticexpialidocious
+- Pseudopseudohypoparathyroidism
+- Floccinaucinihilipilification
+- Antidisestablishmentarianism
+- Honorificabilitudinitatibus
+- Hippopotomonstrosesquippedaliophobia
+- intergouvernementalisations
+- dichlorodiphényltrichloroéthane
+- quatre-cent-quatre-vingt-quatorze-mille-quatre-cent-quatre-vingt-quatorzièmes
+- aminométhylpyrimidinylhydroxyéthylméthythiazolium
+- λοπαδοτεμαχοσελαχογαλεοκρανιολειψανοδριμυποτριμματοσιλφιοκαραϐομελιτοκατακεχυμενοκιχλεπικοσσυφο- φαττοπεριστεραλεκτρυονοπτεκεφαλλιοκιγκλοπελειολαγῳοσιραιοϐαφητραγανοπτερυγών
+## longest word (atleast, what the chart allowed me to put of it)
+- Methionylthreonylthreonylglutaminylarginyltyrosylglutamylserylleucylphenylalanylalanylglutaminylleucyllysylglutamylarginyllysylglutamylglycylalanylphenylalanylvalylprolylphenylalanylvalylthreonylleucylglycylaspartylprolylglycylisoleucylglutamylglutaminylserylleucyllysylisoleucylaspartylthreonylleucylisoleucylglutamylalanylglycylalanylaspartylalanylleucylglutamylleucylglycylisoleucylprolylphenylalanylserylaspartylprolylleucylalanylaspartylglycylprolylthreonylisoleucylglutaminylasparaginylalanylthreonylleucylarginylalanylphenylalanylalanylalanylglycylvalylthreonylprolylalanylglutaminylcysteinylphenylalanylglutamylmethionylleucylalanylleucylisoleucylarginylglutaminyllysylhistidylprolylthreonylisoleucylprolylisoleucylglycylleucylleucylmethionyltyrosylalanylasparaginylleucylvalylphenylalanylasparaginyllysylglycylisoleucylaspartylglutamylphenylalanyltyrosylalanylglutaminylcysteinylglutamyllysylvalylglycylvalylaspartylserylvalylleucylvalylalanylaspartylvalylprolylvalylglutaminylglutamylseryla
+2023-11-29, 224 entries
+What do the entry decorations mean?Underlined entries have links  
+Overlined entries have descriptions  
+Highlighted entries have been added or updated recentlytags:
+#  [Alphabet Iceberg](https://icebergcharts.com/i/Alphabet) 📋
+  [
+](https://reddit.com/submit/?url=https%3A%2F%2Ficebergcharts.com%2Fi%2FAlphabet&resubmit=true&title=Alphabet%20Iceberg%20Chart) [
+](https://mastodon.social/share?text=Alphabet%20Iceberg%20Chart&url=https%3A%2F%2Ficebergcharts.com%2Fi%2FAlphabet) [
+](https://icebergcharts.com/i/Alphabet/image)
+- A
+- B
+- C
+- D
+- F
+- G
+- H
+- I
+- J
+- K
+- L
+- M
+- N
+- O
+- P
+- R
+- S
+- T
+- U
+- V
+- X
+- Y
+- Z
+- Ä
+- Ü
+- Ł
+- ø
+- Q
+- Ö
+- ß
+- æ
+- œ
+- §
+- ð
+- þ
+- ƿ
+- ȝ
+- E
+- [W](https://youtu.be/sg2j7mZ9-2Y)
+- A 2: Subsequent Moviefilm

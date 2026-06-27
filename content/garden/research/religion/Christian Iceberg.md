@@ -1,0 +1,538 @@
+---
+title: "Christian Iceberg"
+---
+
+- [Heaven](https://en.wikipedia.org/wiki/Heaven)
+- [Satan](https://en.wikipedia.org/wiki/Satan)
+- [Faith Alone](https://en.wikipedia.org/wiki/Sola_fide)
+- [Trinity](https://en.wikipedia.org/wiki/Trinity)
+- [Satan is the Serpent](https://www.biblicalarchaeology.org/daily/biblical-topics/bible-interpretation/how-the-serpent-in-the-garden-became-satan/)
+- [Purgatory](https://en.wikipedia.org/wiki/Purgatory)
+- [Hell](https://en.wikipedia.org/wiki/Hell)
+- [The Firmament](https://en.wikipedia.org/wiki/Firmamenthttps://en.wikipedia.org/wiki/Firmament)
+- [Arc of the Covenant Location](https://www.compellingtruth.org/ark-of-the-covenant.html)
+- [Holy Grail Location](https://www.learnreligions.com/where-is-the-holy-grail-4783401)
+- [Antichrist](https://en.wikipedia.org/wiki/Antichrist)
+- [Protestantism](https://en.wikipedia.org/wiki/Protestantism)
+- [Catholicism](https://en.wikipedia.org/wiki/Catholicism)
+- [Orthodoxy](https://en.wikipedia.org/wiki/Eastern_Orthodox_Church)
+- [Bible](https://en.wikipedia.org/wiki/Bible)
+- [Church Fathers](https://en.wikipedia.org/wiki/Church_Fathers)
+- [The Book of Enoch](https://en.wikipedia.org/wiki/Book_of_Enoch)
+- [Apocrypha](https://en.wikipedia.org/wiki/Apocrypha)
+- [Mariology](https://en.wikipedia.org/wiki/Mariology)
+- Ablution
+- Original Sin
+- Cosmic Ocean
+- [Dead Sea Scrolls](https://en.wikipedia.org/wiki/Dead_Sea_Scrolls)
+- Lost Tribes of Israel
+- Lost Books of the Bible
+- Talking Donkey
+- [Nephilim](https://en.wikipedia.org/wiki/Nephilim)
+- Immaculate Conception
+- Cherubs
+- Papal Infallibility
+- Great Schism
+- [Sheol](https://en.wikipedia.org/wiki/Sheol)
+- Predestination
+- Protestant Reformation
+- Great Dissapointment
+- Great Awakening
+- [Mormonism](https://en.wikipedia.org/wiki/Mormonism)
+- [Rapture](https://en.wikipedia.org/wiki/Rapture)
+- [Biblically Accurate Angels](https://www.historydefined.net/biblically-accurate-angels-would-actually-be-pretty-scary/)
+- Moses Wrote The Torah
+- 144,000
+- [Filioque](https://en.wikipedia.org/wiki/Filioque)
+- [Ecumenical Councils](https://en.wikipedia.org/wiki/Ecumenical_council)
+- Transubstantiation
+- [The Western Schism](https://en.wikipedia.org/wiki/Western_Schism)
+- Antipopes
+- [KJB Onlyism](https://en.wikipedia.org/wiki/King_James_Only_movement)
+- [Limbo](https://en.wikipedia.org/wiki/Limbo)
+- Aliens in the Bible
+- Dinosaurs in the Bible
+- Hell Doesn’t Exist
+- [Gospel of Judas](https://en.wikipedia.org/wiki/Gospel_of_Judas)
+- [Gnosticism](https://en.wikipedia.org/wiki/Gnosticism)
+- Location of the Garden of Eden
+- Pre-Adamism
+- Birth Time of Jesus
+- Lost Years of Jesus
+- Witch of Endor
+- Behemoth
+- Curse of Ham
+- [Lilith](https://en.wikipedia.org/wiki/Lilith)
+- [Nicene Creed](https://en.wikipedia.org/wiki/Nicene_Creed)
+- Universal Reconciliation
+- [Leviathan](https://en.wikipedia.org/wiki/Leviathan)
+- Trinity in the Old Testament
+- Nimrod
+- Self-Flagellation
+- Bible Stories in Other Religions
+- Reincarnationism
+- Two Kingdoms Doctrine
+- Unicorns
+- Codex Gigas
+- Assumption of Mary
+- Brother of Jesus
+- Hong Xiuquan
+- [Third Temple](https://en.wikipedia.org/wiki/Third_Temple)
+- [Albigensian Crusade](https://en.wikipedia.org/wiki/Albigensian_Crusade)
+- [Stigmata](https://en.wikipedia.org/wiki/Stigmata)
+- Substitution Hypothesis
+- [Silver Scrolls](https://en.wikipedia.org/wiki/Ketef_Hinnom_scrolls)
+- Jesus Death Time
+- God's Name Pronunciation
+- Exodus Pharaoh Identity
+- [Gog and Magog](https://en.wikipedia.org/wiki/Gog_and_Magog)
+- Sodom and Gomorrah Location
+- [Wicked Bible](https://en.wikipedia.org/wiki/Wicked_Bible)
+- Secret Polytheism
+- [Dead God Theology](https://en.wikipedia.org/wiki/Death_of_God_theology)
+- Zipporah
+- [Branch Davidians](https://en.wikipedia.org/wiki/Branch_Davidians)
+- Black Sea Deluge
+- Ezra's Death
+- Omission of Women
+- Lucifer is Venus
+- Adam–God Doctrine
+- [Flood Geology](https://en.wikipedia.org/wiki/Flood_geology)
+- [Q Source](https://en.wikipedia.org/wiki/Q_source)
+- [Golem of Prague](https://en.wikipedia.org/wiki/Golem#The_classic_narrative:_The_Golem_of_Prague)
+- [Time Dilation Creationism](https://en.wikipedia.org/wiki/Time_dilation_creationism)
+- Sedevacantism
+- [Disciple Whom Jesus Loved](https://en.wikipedia.org/wiki/Disciple_whom_Jesus_loved)
+- [Shapira Scroll](https://en.wikipedia.org/wiki/Shapira_Scroll)
+- Old Catholic Church
+- God’s Ego Death
+- [Messaianic Secret](https://en.wikipedia.org/wiki/Messianic_Secret)
+- Land of Nod Location
+- [Melchizedek](https://en.wikipedia.org/wiki/Melchizedek)
+- Bartholomew
+- God’s Appearance
+- Mystery Babylon
+- The Events of Revelations Have Already Passed
+- Cain Is Still Alive
+- Moses Had a Stutter
+- Johannine Comma
+- Anger of Jesus
+- Bibliomancy
+- Short Ending of Mark
+- Satan is the Prince of this World
+- Son of Man in Fire with Shadrach, Meshach, and Abednego
+- [Pope Joan](https://en.wikipedia.org/wiki/Pope_Joan)
+- [Arianism](https://en.wikipedia.org/wiki/Arianism)
+- Santa Muerte
+- [Prester John](https://en.wikipedia.org/wiki/Prester_John)
+- [Muhammad in The Bible](https://en.wikipedia.org/wiki/Muhammad_and_the_Bible)
+- Israel’s Genocides
+- [Yahwism](https://en.wikipedia.org/wiki/Yahwism)
+- Giuseppe Siri Theory
+- [Wandering Jew](https://en.wikipedia.org/wiki/Wandering_Jew)
+- [Stolen Body Hypothesis](https://en.wikipedia.org/wiki/Stolen_body_hypothesis)
+- [Lost Body Hypothesis](https://en.wikipedia.org/wiki/Lost_body_hypothesis)
+- Real Nephilim Bones
+- [Selah](https://en.wikipedia.org/wiki/Selah)
+- Ophir Location
+- Post-Flood Nephilim
+- Star of Bethlehem Wasn’t a Star
+- [Bible Codes](https://en.wikipedia.org/wiki/Bible_code)
+- Apocalypse Dead Resurrection
+- Mary is the New Arc of The Covenant
+- Solomon’s Ring
+- Heaven is Hotter than Hell
+- Paul in the 3rd Heaven
+- Horns of Moses
+- The She Bible
+- [Spalding–Rigdon Theory of Book of Mormon Authorship](https://en.wikipedia.org/wiki/Spalding%E2%80%93Rigdon_theory_of_Book_of_Mormon_authorship)
+- Bay Psalm Book
+- [Tree of Life in Izapa Stela 5](https://en.wikipedia.org/wiki/Izapa_Stela_5)
+- Genesis Veganism
+- [Vision Theory of Jesus' Appearances](https://en.wikipedia.org/wiki/Vision_theory_of_Jesus%27_appearances)
+- [Nestorian Stele](https://en.wikipedia.org/wiki/Xi%27an_Stele)
+- [Painting of a Christian figure](https://en.wikipedia.org/wiki/Painting_of_a_Christian_figure)
+- [Mortara Case](https://en.wikipedia.org/wiki/Mortara_case)
+- [Aramaic Enoch Scroll](https://en.wikipedia.org/wiki/Aramaic_Enoch_Scroll)
+- [Curelom and Cumom](https://en.wikipedia.org/wiki/Curelom_and_cumom)
+- [Fig Leaf Campaign](https://medium.com/lessons-from-history/vaticans-fig-leaf-campaign-ac86884b87a9)
+- [Council of Jamnia](https://en.wikipedia.org/wiki/Council_of_Jamnia)
+- Palmarian Church
+- [Pope Michael I](https://en.wikipedia.org/wiki/David_Bawden)
+- Sodom and Gomorrah Apocalypse
+- [The Free Will Paradox](https://en.wikipedia.org/wiki/Argument_from_free_will)
+- [The Swoon Hypothesis](https://en.wikipedia.org/wiki/Swoon_hypothesis)
+- [Panthera](https://en.wikipedia.org/wiki/Tiberius_Julius_Abdes_Pantera)
+- Four Wounds
+- Augustus Census Discrepancy
+- Jesus Froze Time
+- [Gospel of Jesus's Wife](https://en.wikipedia.org/wiki/Gospel_of_Jesus%27_Wife)
+- Ietsism
+- Boy Fleeing Gethsemane
+- Samyaza
+- Catholic Sun Worship
+- Grotesques
+- [Serpent Seed](https://en.wikipedia.org/wiki/Serpent_seed)
+- [Eutychianism](https://en.wikipedia.org/wiki/Eutychianism)
+- [Ararat Anomaly](https://en.wikipedia.org/wiki/Ararat_anomaly)
+- [Abgar Legend](https://en.wikipedia.org/wiki/Abgar_legend)
+- [Schiller Woods Magic Water Pump](https://en.wikipedia.org/wiki/Schiller_Woods_magic_water_pump)
+- Suicide Burials
+- [Aclima](https://en.wikipedia.org/wiki/Aclima)
+- Ransom Theory of Atonement
+- Temptation Seal
+- 100 trillion angels
+- [Adam and Eve Baculum Theory](https://www.dailymail.co.uk/sciencetech/article-3377487/God-Eve-Adam-s-PENIS-not-rib-claims-religious-academic.html)
+- Stone Crib
+- Other Gods Defeated by Jesus
+- Animal Souls Judging Humans
+- Papias’ Account of Judas’ Death
+- [Sin Eating](https://en.wikipedia.org/wiki/Sin-eater)
+- Stylite Monks
+- The Garden Tomb
+- Eve Invented Funerals
+- [Durupınar Site](https://en.wikipedia.org/wiki/Durup%C4%B1nar_site)
+- [Jewish Pope Andreas](https://en.wikipedia.org/wiki/Jewish_pope_Andreas)
+- Mushrooms in Christian Art
+- [Pope Donus II](https://en.wikipedia.org/wiki/Pope_Donus_II)
+- Irish Sailing Monks
+- Judas Was A Sacrificial Lamb
+- [Saint Amaro](https://en.wikipedia.org/wiki/Saint_Amaro)
+- [Saint Brendan's Island](https://en.wikipedia.org/wiki/Saint_Brendan%27s_Island)
+- We All Go To Hell
+2025-09-06, 198 entries
+Bible Passage Theology Theories/Interpetations Extra-Canonical
+- God
+- Crucifixion of Christ
+- The Resurrection
+- The Trinity
+- Adam and Eve
+- The Apostle Paul
+- Heaven and Hell
+- Dead Sea Scrolls
+- 400 Years of Silence
+- Baptism
+- Ancient Israel/The Hebrews
+- Communion/Eucharist
+- David and Goliath
+- Nephilim/Giants
+- Classification of Angels
+- Different canons of the Bible
+- The Death of Judas (Matthew 27: 3-10, Acts 1:18-19)
+- Book of Revelation
+- The ending of Mark
+- Enoch (Genesis: 21-25)
+- Demon Possession
+- Paul’s out of body experience (2 Corinthians: 12-24)
+- The Unforgivable Sin (Matthew 12: 31-32, Mark 3: 28-30)
+- War in heaven (Revelation 12: 7-12)
+- The Lost Years of Jesus
+- Leviathan and Behemoth (Job 40: 15-24, Job 41)
+- Jesus descended into hell
+- The Antichrist
+- Jesus in the temple (Luke 2: 41-50)
+- Elisha’s baldness (2 Kings 2: 19-25)
+- Codex Sinaiticus (oldest complete Bible)
+- The Apocrypha
+- King Solomon
+- Jesus wasn’t a carpenter
+- Modern science in the Bible
+- Apocrypha quoted in the Bible
+- The Witch of Endor (1 Samuel 28: 7-20)
+- Sheol (2 Samuel 22:6, Job 11:8, 17:16, 26:6, Psalm 16:10, 18:5, 86:13, 116:3, Proverbs 1:12, Isaiah 5:14, 14:11, 15, 28:15, 28, 38:10, 18, 57:9, Jonah 2:2)
+- Lilith
+- Other gospels about Jesus
+- The identity of the naked boy in Gethsemane (Mark 14: 51-52)
+- What happened Cain after he murdered his brother (Genesis 4:11-17)
+- Pagan gods are demons (1 Corinthians 10:20, Psalm 106: 35-39)
+- Satan wanted Moses’ body (Jude 9)
+- Moses had a speech impediment (Exodus 4:10)
+- Talking Donkey (Numbers 22: 22-40)
+- Legion (Mark 5: 1-20, Luke 8:26-39)
+- Ketef Hinnom Scrolls
+- Hittite Empire discovered through the Bible
+- The worth of Solomon’s possessions
+- Jesus’ sense of humor (Mark 3:17)
+- The Book of Jasher (Joshua 3:10, 2 Samuel 1:18)
+- Jokes and humor in the Bible
+- Jonah died in the fish (Jonah 2:1–9)
+- Moses didn’t write the Pentateuch
+- Humans judging angels (1 Corinthians 6:3)
+- Unicorns in the Bible (Technically) (Job 39:9-10, Psalm 22:21, 29:6, 92:10, Deuteronomy 33:17, Numbers 23:22, 24:8, Isaiah 34:7)
+- The Marcion Canon
+- Incest in the Bible
+- Nukes predicted in the OT (Zachariah 14:13-14)
+- Watchers in the Bible (Daniel 4:13)
+- Mines of Ophir (1 Kings 9:27-28)
+- Ehud stabs Eglon (Judges 12:12-30)
+- Fallen angels bound beneath the earth (Jude 6)
+- Abraham’s Bosom (Luke 16:19-31)
+- Acts was originally part of Luke but was split into two separate books
+- Petra (Obadiah 3)
+- The tribe of Dan were the Sea People
+- Giant with six digits (2 Samuel 2:20-22)
+- Jesus singing (Matthew 27:30, Mark 14:26)
+- Literal lost books of the Bible
+- Antediluvian period (Pre-Noah’s Flood world) (Genesis 2:8-20, 4:16-16, 6:18)
+- Q-Source
+- Technology predicted in the Bible
+- God fought and killed the Levaithan (Psalm 74:13-15)
+- Judges 19
+- The Holy Spirit teleports Philip (Acts 8:26-40)
+- Satan was a cherub (Ezekiel 28:14)
+- God named all of the stars (Psalm 147:4)
+- Jesus fulfilled every Old Testament prophecy about Him
+- Bible stories in other religions
+- Appearances of Jesus in the OT (Daniel 3:24-25, 7:13, Genesis 18:24)
+- The Unknown Years of Jesus
+- God in His absolute form
+- The hidden spiritual realm/spiritual warfare
+- The eternal fate for souls
+# Christian Demonology and Angelology Iceberg 
+Demon Angel
+Lesser Key of Solomon LKSBiblical BArs Goetia AG Pseudomonarchia Daemonum PDThe Book of Enoch EDe Arte Cabbalistica DACThe Book of Kings BKAlphabet of Ben Sira ABSThe Templars TThe Magus M
+- [LuciferB](https://en.wikipedia.org/wiki/Lucifer)
+- [Gabriel (Angel of the Lord)B](https://www.lignoma.com/en/magazine/archangel-gabriel-everything-worth-knowing/#:~:text=princes%20and%20angels.-,Who%20is%20the%20Archangel%20Gabriel%3F,the%20Archangel%20on%20March%2024.)
+- [Cherubim (cherubs)B](https://en.wikipedia.org/wiki/Cherub)
+- [SuccubiABS](https://en.wikipedia.org/wiki/Succubus)
+- [SatanB](https://en.wikipedia.org/wiki/Satan)
+- [Archangel MichaelB](https://en.wikipedia.org/wiki/Michael_\(archangel\))
+- [PaimonAG](https://en.wikipedia.org/wiki/Paimon)
+- [BeelzebubBK](https://en.wikipedia.org/wiki/Beelzebub#:~:text=In%20theological%20sources%2C%20predominantly%20Christian,Beelzebub%20representing%20gluttony%20and%20envy.)
+- [AsmodeusLKS](https://en.wikipedia.org/wiki/Asmodeus#:~:text=He%20is%20one%20of%20the,Asmodeus%20a%20prince%20of%20revenge.)
+- [IncubiABS](https://en.wikipedia.org/wiki/Incubus)
+- [BaphometT](https://en.wikipedia.org/wiki/Baphomet)
+- [BelialB](https://en.wikipedia.org/wiki/Belial)
+- [MammonB](https://en.wikipedia.org/wiki/Mammon)
+- [MerihemM](https://en.wikipedia.org/wiki/Noonday_Demon)
+- [StolasAG](https://villains.fandom.com/wiki/Stolas_\(mythology\))
+- [ArielB](https://en.wikipedia.org/wiki/Ariel_\(angel\))
+- [AzraelB](https://en.wikipedia.org/wiki/Azrael)
+- [Amitiel](https://theseventhangelbook.com/angel-guidance/the-complete-guide-to-angel-amitiel/)
+- [Metatron](https://en.wikipedia.org/wiki/Metatron)
+- [Samael](https://en.wikipedia.org/wiki/Samael)
+- [Sariel](https://en.wikipedia.org/wiki/Sariel)
+- [Seraphim](https://en.wikipedia.org/wiki/Seraph)
+- [Raphael](https://en.wikipedia.org/wiki/Raphael_\(archangel\))
+- [Michael](https://en.wikipedia.org/wiki/Michael_\(archangel\))
+- [Barbatos](https://en.wikipedia.org/wiki/Barbatos#:~:text=Barbatos%20is%20the%208th%20spirit,in%20the%20sign%20of%20Sagittarius.)
+- [Furfur](https://en.wikipedia.org/wiki/Furfur)
+- [Gaap](https://en.wikipedia.org/wiki/Gaap)
+- [Gemory](https://en.wikipedia.org/wiki/Gemory)
+- [Malphas](https://en.wikipedia.org/wiki/Malphas)
+- [Marchosias](https://en.wikipedia.org/wiki/Marchosias)
+- [Moloch](https://en.wikipedia.org/wiki/Moloch)
+- [Naberius](https://en.wikipedia.org/wiki/Naberius)
+- [Cassiel](https://en.wikipedia.org/wiki/Cassiel)
+- [Kushiel](https://en.wikipedia.org/wiki/Kushiel)
+- [Muriel](https://en.wikipedia.org/wiki/Muriel_\(angel\))
+- [Phanuel](https://en.wikipedia.org/wiki/Phanuel_\(angel\))
+- [Sandalphon](https://en.wikipedia.org/wiki/Sandalphon)
+- [Tamiel](https://en.wikipedia.org/wiki/Tamiel)
+- [Four Living Creatures](https://icebergcharts.com/e/c489b9d4-11bd-485f-b56c-de0efb63d8f7)
+- [Baal/Bael](https://en.wikipedia.org/wiki/Bael_\(demon\))
+- [Astaroth](https://en.wikipedia.org/wiki/Astaroth)
+- [Andreaphlus](https://mythus.fandom.com/wiki/Andrealphus)
+- [Andras](https://gods-and-demons.fandom.com/wiki/Andras)
+- [Agares](https://en.wikipedia.org/wiki/Agares)
+- [Abaddan/Apollyon](https://en.wikipedia.org/wiki/Abaddon)
+- [Belphegor](https://en.wikipedia.org/wiki/Belphegor)
+- [Baalam](https://en.wikipedia.org/wiki/Balaam)
+- [Bune](https://en.wikipedia.org/wiki/Bune)
+- [Forneus](https://en.wikipedia.org/wiki/Forneus)
+- [Gamigin](https://en.wikipedia.org/wiki/Gamigin)
+- [Gusion/Gusoin](https://en.wikipedia.org/wiki/List_of_demons_in_the_Ars_Goetia#Gusion)
+- [Ipos](https://en.wikipedia.org/wiki/Ipos)
+- [Morax](https://en.wikipedia.org/wiki/Morax_\(demon\))
+- [Murmur](https://the-demonic-paradise.fandom.com/wiki/Murmur)
+- [Orias](https://en.wikipedia.org/wiki/Orias)
+- [Valefar](https://en.wikipedia.org/wiki/Valefar)
+- [Vassago](https://en.wikipedia.org/wiki/Vassago)
+- Agiel
+- [Arakiel](https://en.wikipedia.org/wiki/Arakiel)
+- [Amaros](https://en.wikipedia.org/wiki/Armaros)
+- [Azazel](https://en.wikipedia.org/wiki/Azazel)
+- [Barachiel](https://en.wikipedia.org/wiki/Barachiel)
+- [Barbiel](https://www.angelarium.net/scorpio)
+- [Camiel](https://en.wikipedia.org/wiki/Camael)
+- [Daniel](https://en.wikipedia.org/wiki/Daniel_\(angel\))
+- [Jegudiel](https://en.wikipedia.org/wiki/Jegudiel)
+- [Jehoel](https://en.wikipedia.org/wiki/Yahoel)
+- [Jehrameel](https://en.wikipedia.org/wiki/Jerahmeel_\(archangel\))
+- [Jophiel](https://en.wikipedia.org/wiki/Jophiel)
+- [Mastema](https://en.wikipedia.org/wiki/Mastema)
+- [Mebahiah](https://my.astrofame.com/clairvoyance/article/mebahiah-guardian-angel)
+- [Nithael](https://my.astrofame.com/clairvoyance/article/nithael-guardian-angel)
+- [Penemue](https://en.wikipedia.org/wiki/Penemue)
+- [Selaphiel](https://en.wikipedia.org/wiki/Selaphiel)
+- [Zozo](https://villains.fandom.com/wiki/Zozo)
+- [Amaymon](https://en.wikipedia.org/wiki/Amaymon)
+- [Alloces/Allocer](https://en.wikipedia.org/wiki/Alloces)
+- [Aamon or Amon](https://en.wikipedia.org/wiki/Aamon)
+- [Barbas/Marbas](https://en.wikipedia.org/wiki/Marbas)
+- [Beleth](https://en.wikipedia.org/wiki/Beleth)
+- [Bifrons](https://en.wikipedia.org/wiki/Bifrons_\(demon\))
+- [Botis/Otis](https://en.wikipedia.org/wiki/Botis)
+- [Buer](https://en.wikipedia.org/wiki/Buer_\(demon\))
+- [Kimaris/Cimeies/Cimejes/Cimeries](https://en.wikipedia.org/wiki/Kimaris)
+- [Dantalion](https://genies.fandom.com/wiki/Dantalion)
+- [Foras/Forcas/Forras](https://en.wikipedia.org/wiki/Foras)
+- [Furcas](https://en.wikipedia.org/wiki/Furcas)
+- [Glasya-Labolas](https://en.wikipedia.org/wiki/List_of_demons_in_the_Ars_Goetia#Glasya-Labolas)
+- [Haagenti](https://en.wikipedia.org/wiki/Haagenti)
+- [Halphas](https://en.wikipedia.org/wiki/Halphas)
+- [Leraje](https://en.wikipedia.org/wiki/Leraje)
+- [Orobas](https://en.wikipedia.org/wiki/Orobas)
+- [Ose](https://en.wikipedia.org/wiki/Ose_%28demon%29)
+- [Phenex](https://en.wikipedia.org/wiki/Phenex)
+- [Raim/Raum](https://the-demonic-paradise.fandom.com/wiki/Raum)
+- [Ronove](https://en.wikipedia.org/wiki/Ronove)
+- [Ukobach](https://genies.fandom.com/wiki/Ukobach)
+- [Valac](https://en.wikipedia.org/wiki/Valac)
+- [Vepar](https://the-demonic-paradise.fandom.com/wiki/Vepar)
+- [Vine](https://en.wikipedia.org/wiki/Vine_\(demon\))
+- [Zagan](https://the-demonic-paradise.fandom.com/wiki/Zagan)
+- [Ananiel](https://en.wikipedia.org/wiki/Ananiel)
+- [Asbeel](https://en.wikipedia.org/wiki/Asbeel)
+- [Beburos](https://en.wikipedia.org/wiki/Beburos)
+- [Chazaqiel](https://en.wikipedia.org/wiki/Chazaqiel)
+- [Gamaliel](https://guardianangelguide.com/archangel-gamaliel/)
+- [Hahasiah/Haniel](https://my.astrofame.com/clairvoyance/article/hahasiah-guardian-angel)
+- [Hamaliel](https://www.google.com/search?client=safari&rls=en&q=Hamaliel&ie=UTF-8&oe=UTF-8)
+- [Hashmal](https://en.wikipedia.org/wiki/Hashmal)
+- [Imamiah](https://my.astrofame.com/clairvoyance/article/imamiah-guardian-angel)
+- [Kokabiel](https://en.wikipedia.org/wiki/Kokabiel)
+- [Batriel/Matriel](https://en.wikipedia.org/wiki/Batariel)
+- [Mitzrael](https://angelology.fandom.com/wiki/Mitzrael)
+- [Nanael](https://my.astrofame.com/clairvoyance/article/nanael-guardian-angel)
+- [Ophaniel](http://www.michaelshands.com/80.Angels/Ophaniel.asp?T=0)
+- [Pahaliah](https://en.wikipedia.org/wiki/Pahaliah)
+- [Poyel](https://my.astrofame.com/clairvoyance/article/poyel-guardian-angel)
+- [Raguel](https://en.wikipedia.org/wiki/Raguel_\(angel\))
+- [Rikbiel](https://guardianangelguide.com/guardian-angel-rikbiel/)
+- [Sachiel](https://en.wikipedia.org/wiki/Sachiel)
+- [Shamsiel](https://en.wikipedia.org/wiki/Shamsiel)
+- [Sidriel](https://guardianangelguide.com/archangel-sidriel/)
+- [Balbarith/Berith](https://en.wikipedia.org/wiki/Baal_Berith)
+- [Amy](https://en.wikipedia.org/wiki/Amy_\(demon\))
+- [Andromallius](https://genies.fandom.com/wiki/Andromalius)
+- [Amdusius](https://the-demonic-paradise.fandom.com/wiki/Amdusias)
+- [Aim/Haborym](https://occult-world.com/aim-haborym/)
+- [Abigor](https://mythus.fandom.com/wiki/Abigor)
+- [Abezethibou](https://en.wikipedia.org/wiki/Abezethibou)
+- [Crocell/Procell](https://the-demonic-paradise.fandom.com/wiki/Crocell)
+- [Decarabia/Carabia](https://en.wikipedia.org/wiki/List_of_demons_in_the_Ars_Goetia#Decarabia)
+- [Flauros](https://en.wikipedia.org/wiki/List_of_demons_in_the_Ars_Goetia#Flauros)
+- [Lucifuge Rofocale](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwiE-s-O1IOBAxXqilYBHbdJBDoQFnoECCsQAQ&url=https%3A%2F%2Fmythos-and-legends.fandom.com%2Fwiki%2FLucifuge_Rofocale&usg=AOvVaw1o3cokNm2liz-0nJVbpsz_&opi=89978449)
+- [Vapula/Naphula](https://the-demonic-paradise.fandom.com/wiki/Vapula)
+- [Pruflas](https://genies.fandom.com/wiki/Pruflas)
+- [Purson](https://the-demonic-paradise.fandom.com/wiki/Purson)
+- [Sabnock](https://the-demonic-paradise.fandom.com/wiki/Sabnock)
+- [Sallos](https://the-demonic-paradise.fandom.com/wiki/Sallos)
+- [Shax](https://the-demonic-paradise.fandom.com/wiki/Shax)
+- [Seir](https://the-demonic-paradise.fandom.com/wiki/Seir)
+- [Ramiel](https://en.wikipedia.org/wiki/Ramiel)
+- [Sitri](https://genies.fandom.com/wiki/Sitri)
+- [Surgat](https://en.wikipedia.org/wiki/Surgat)
+- [Vual](https://the-demonic-paradise.fandom.com/wiki/Vual)
+- [Xaphan](https://en.wikipedia.org/wiki/Xaphan)
+- [Xezbeth](https://en.wikipedia.org/wiki/Xezbeth)
+- [Zepar](https://the-demonic-paradise.fandom.com/wiki/Zepar)
+- [Ziminar](https://en.wikipedia.org/wiki/Ziminiar)
+- [Baraqiel](https://en.wikipedia.org/wiki/Baraqiel)
+- [Bezelial](https://en.wikipedia.org/wiki/Bezaliel)
+- [Sarathiel](https://en.wikipedia.org/wiki/Sarathiel)
+- [Shem HaMephorashDAC](https://en.wikipedia.org/wiki/Shem_HaMephorash)
+- [ChalkydriE](https://en.wikipedia.org/wiki/Chalkydri)
+- [Phoenixes (Enoch)E](https://sacred-texts.com/bib/fbe/fbe119.htm)
+- Satanachia
+# Apocrypha and Deuterocanonical Bible Iceberg
+- Books of Enoch
+- Book of Jubilees
+- Book of Maccabees
+- 1st and 2nd Clement
+- 2 Baruch
+- Additions to Esther
+- Book of Sirach
+- Book of Tobit
+- Book of Wisdom
+- The Shepherd of Hermas
+- Acts of Paul
+- Bel and the Dragon
+- Testament of Solomon
+- Acts of Peter
+- Song of the Three Holy Children
+- Book of Jasher
+- Susanna and the Elders
+- Didache
+- Apocalypse of Peter
+- Acts of Andrew
+- Apocalypse of Paul
+- Assumption of Moses
+- Gospel of Nicodemus
+- Epistle of Barnabas
+- Letter of Aristeas
+- Gospel of the Nazarenes
+- Story of Ahikar
+- Acts of Paul and Thecla
+- Book of the Kings of Judah and Israel
+- Gospel of Pseudo-Matthew
+- Gospel of Peter
+- Testaments of the Twelve Patriarchs
+- Epistle of Polycarp
+- Gospel of the Ebionites
+- Seven Letters of Ignatius
+- Life of Adam and Eve
+- Chronicles of the Kings of Israel
+- Book of Gad the Seer
+- Ascension of Isaiah
+- Apocalypse of Zephaniah
+- Psalms of Solomon
+- Assumption of Mary
+- Acts of Solomon
+- Prophecy of Ahijah
+- Acts of Uziah
+- Testament of Adam
+- Greek Apocalypse of Daniel
+- Gospel of James
+- Syriac Infancy Gospel
+- History of Joseph the Carpenter
+- Acts of Peter and Andrew
+- Secret Gospel of Mark
+- Book of Noah
+- Greek Apocalypse of Ezra
+- Egerton Gospel
+- Genesis Apocryphon
+- Gospel of the Twelve
+- Gospel of the Hebrews
+- Conflict of Adam and Eve with Satan
+- Second Apocalypse of John
+- Gospel of Bartholomew
+- Acts of Peter and Paul
+- Apocalypse of Elijah
+- Aramaic Enoch Scroll
+- Prayer of Joseph
+- Vision of Ezra
+- Epistle to the Laodiceans
+- Fayyum Fragment
+- Cave of Treasures
+- Aesop's Fables
+- Book of Shemaiah the Prophet
+- Visions of Iddo the Seer
+- The Manner of the Kingdom
+- Laments for Josiah
+- Book of Jehu
+- Book of Samuel the Seer
+- Annals of King David
+- Book of the Wars of the Lord
+- Chronicles of the Kings of Judah
+- Book of Nathan the Prophet
+- Story of the Book of Kings
+- Sayings of the Seers
+- Acts of the Kings of Israel
+- Gospel of Matthias
+- Gospel of the Seventy
+- Severe Letter
+- Story of the Prophet Iddo
+- Samuel’s Book from 1 Samuel 10:25
+- Five books by Jason of Cyrene

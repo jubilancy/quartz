@@ -1,0 +1,23 @@
+* ✔ J = Joking
+* ✔ HJ = half Joking
+* ✔ S = sarcastic
+* ✔ SRS = serious
+* ✔ NSRS = not serious
+* ✔ LH = light hearted
+* ✔ GEN = genuine
+* ✔ GENQ = genuine question
+* ✔ IJ = inside Joke
+* ✔ REF = reference
+* ✔ T = teasing
+* ✔ NM = not mad
+* ✔ NF = not forced
+* ✔ NBH = nobody here
+* ✔ TH = threat question
+* ✔ P = platonic
+* ✔ R = romantic
+* ✔ Q = quote
+* ✔ LY = lyrics
+* ✔ POS = positive connotation
+* ✔ NEG = negative connotation
+* ✔ NEU = neutral connotation
+* @maomaos\_ears

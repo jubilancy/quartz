@@ -1,0 +1,13 @@
+https://amzn.id/eliana
+https://bio.site/etmr
+https://damus.io/npub1lsztpzt3tlafawg77sfg43z9cccmdsfhv0r5jxn4dhuhw6x2wylsyrtvgv
+https://eliana.btw.so/
+https://eliana.lol/
+https://eliana.lol/ig
+https://git.new/eliana
+https://matrix.to/#/@el:bladerunn.in
+https://matrix.to/#/@el:bladerunn.in%20
+https://pinkary.com/@eliana
+https://slugy.co/eliana
+https://spti.fi/eliana
+https://beliapp.co/app/etmr

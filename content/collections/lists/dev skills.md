@@ -1,0 +1,18 @@
+- C
+- CI/CD
+- Cpp
+- Git
+- GitHub
+- HTML/CSS/JS
+- Java
+- Markdown documentation frameworks.
+- MERN
+- MongoDB
+- MySQL
+- NextJS
+- Postman
+- Prisma
+- Python
+- Tailwind
+- Technical writing
+- TypeScript

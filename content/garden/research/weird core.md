@@ -1,0 +1,106 @@
+---
+tags:
+  - garden
+  - iceberg
+---
+
+- EyesE
+- Liminal spacesE
+- [r/weirdcoreweb](https://www.reddit.com/r/weirdcore/)
+- Repeated textE
+- don't you wonder whats inside?WC
+- Weirdcore compilationsC
+- [Yume Nikki soundtrackM](https://www.youtube.com/watch?v=EGM8-YN5B64)
+- [*that* imageM](https://playtokens.tumblr.com/post/170984205987 "Iconic liminal space, named *that* image in the community after the overuse in weirdcore")
+- [Aesthetics wikiweb](https://aesthetics.fandom.com/wiki/Weirdcore)
+- [Have you experienced a strange and inexplicable event? WC](https://static.wikia.nocookie.net/aesthetics/images/f/ff/Image_-_2021-05-21T011220.713.png/revision/latest?cb=20210521041500 "Made by expressingexperience")
+- [Spotify genreweb](https://open.spotify.com/playlist/4ldvbvo0ioenUAurg0pzZk "Genre on spotify that shares a namesake, not very comparable otherwise")
+- [Unorcadox person](https://unorcadox.tumblr.com/ "Super well known weirdcore editor")
+- Void/black boxesE
+- [LSD Dream EmulatorM](https://figglewatts.itch.io/lsd-revamped "Popular game with weirdcore vibes")
+- [Lawgperson](https://www.youtube.com/@Lawg202 "Weirdcore editor best known for their Weirdcore compilations, which introduced many to the aesthetic")
+- Accidental weirdcoreC
+- [destruction1999xperson](https://www.tumblr.com/destruction1999x "Weirdecore editor")
+- [Discord.gg/weirdcoreC](https://discord.gg/weirdcore "Weirdcore community server")
+- [GBRL TVRSTperson](https://gbrltvrst.tumblr.com/ "Editor of iconic edits; often uncredited.")
+- [Greetings from cornhengeM](https://fancyglassesgamer.itch.io/greetings-from-the-cornhenge-a-weirdcoretraumacore-game "Weirdcore point-and-click game")
+- Jpeg CompressionE
+- [me and WC](https://www.tumblr.com/sundaymorningtelevision/614162811222999040 "by sundaymorningtelevision")
+- [traumacore (in relation to weirdcore)C](https://aesthetics.fandom.com/wiki/Traumacore "Traumacore is a catagory of art based around venting trauma. Some traumacore pictures share aesthetic simularity to weirdcore, but the subject matter differentiates it.")
+- sanforrrrrrrrrrrrr (deactivated)person
+- [dreamcore ≠ weirdcoreC](https://pastebin.com/YPEUVeBg "Despite some confusion in the mainstream, these are different aesthetics.")
+- [I can feel your eyesWC](https://static.wikia.nocookie.net/aesthetics/images/9/9b/Image_%2862%29.png "Author unknown")
+- [Ki55edperson](https://ki55ed.tumblr.com/ "Prolific editor most recognized for being one of the first")
+- oddcore/strangecoreC
+- Weirdcore is undefined *
+- Edit collaborations C
+- [Liminal GamejamM](https://itch.io/jam/liminal/entries "Not all weirdcore; but has overlap! See \"Childhood Memories\" and \"Cow Game\"")
+- [Weirdcore [artist]person](http://weirdcore.tv/ "Anonymous artist who has been using the name \"Weirdcore\" actively since 2004. First use of the term online, mostly disconcerted from the aesthetic.")
+- [GoogercoreE](https://www.tumblr.com/tagged/googercore?sort=top "subgenre of weirdcore involving animals (usually cats) edited into weirdcore.")
+- [r/weirdcorecirclejerkweb](https://www.reddit.com/r/weirdcorecirclejerk/ "Run by the r/weirdcore team, its an alternate subreddit for weirdcore shitposts")
+- Unidentified authors*
+- [we're all lost in our own waysWC](https://i.redd.it/osdxw7hyvdh71.png "by sanfor")
+- [Cow gameM](https://b1zarr3vel.itch.io/cow-game "Game by b1zzar3vel")
+- [baby it's going to be okWC](https://ki55ed.tumblr.com/image/640221771838226432 "by ki55ed")
+- cahwwcabh person
+- Lost weirdcore editsC
+- [Weirdcore ArchiveC](https://docs.google.com/document/d/1IZ1jHsIDsxb77U6SX71ZeBE1NDfj58qYPiW_mKjtH3g/edit "WIP archive of weirdcore edits.")
+- [Disturbing Things from Around the Internet [Vol. 13]web WC](https://www.youtube.com/watch?v=tExo3ovEBWQ "A Nexpo video with a section about liminal spaces. Notably (and why its on the iceberg!), the thumbnail uses an uncredited edit by PureDragonn")
+- [LovelyAnimalperson](https://lovelyanimal.tumblr.com/post/142865087810 "One of the first weirdcore editors & one of the first liminal space collectors. linked is an early edit from 2016")
+- [Many people have this power! Original imageweb](http://www.revelation13.net/psychic.html)
+- [MimiC person](https://docs.google.com/document/u/0/d/1S1hhPrRPF99rEVFZFdMYmEeDn62pBxMVJoQepfcAVSs "yeah.")
+- [The first weirdcore editC](https://ki55ed.tumblr.com/post/162359439298 "A complete mystery; and not something that can be solved. Linked is one of the first confirmed edits, in June 2017")
+- [Soup CubeC](https://www.youtube.com/watch?v=nmJM28KfPBI "Proposed weirdcore game, never left concept stages.")
+- [weirdcore.us.toweb](https://web.archive.org/web/20220112141251/http://weirdcore.us.to/index.php "Old website made for sharing weirdcore images, went defunct sometime in 2022")
+- [Invisibleunknownperson](https://drive.google.com/drive/folders/1k8BEELAhQmwoaV2PND4rOgB0wknPqviO?usp=drive_link "tumblr account ran by sanfor in early 2023. Deactived shortly after creation, with some of the edits being lost")
+- [Beautiful weirdcore image](https://www.reddit.com/r/weirdcore/comments/tg34e3/beautiful/ "Another iconic weirdcore image")
+- ["Horrible" Weirdcore Image](https://www.reddit.com/r/weirdcore/comments/ufla10/horrible/ "This one is probably the most iconic weirdcore image that you all have seen.")
+- [Nimbasa Core](https://youtu.be/hLtSZkJcfjs?si=8GM4pOzP5sm86YyN "A Weirdcore music made by the musical artist Plasterbrain")
+- Yume Nikki Soundtrack
+- [Six Forty Seven](https://youtu.be/YHlcmmkiwbU?si=4atK7p0_CjzE4p6F "It's a really famous weirdcore music, a REAL weirdcore music!")
+- Surreal, uncanny, or ominous texts
+- [Weirdcore Music](https://youtu.be/HApRF_ME-c8?si=fZ_6YNUEt07XWWND "Weirdcore music have surrealistic and uncanny vibes with low-effort and low-quality")
+- [Fallen Down](https://youtu.be/cGBMTAGzWPs?si=5G29sdmlWphB1dbT "Fallen Down is a very famous song that i'm sure you've heard of.")
+- ["I Love You" Weirdcore Image](https://images.wikia.com/aesthetics/images/2/21/C03C26FF-D51D-4525-85F8-1E3FF4E0BFA4.gif "A very famous and iconic weirdcore picture.")
+- [Weirdcore Tumblr](https://www.tumblr.com/tagged/weirdcore "Tumblr is the best place where you can find weirdcore images. There are also a lot of users there creating weirdcore.")
+- [Yume Nikki](https://store.steampowered.com/app/650700/Yume_Nikki/ "A japanese-ish video game where you play as someone who explores others' dreams. This game's soundtrack is very popular in weirdcore communities.")
+- [r/weirdcore](https://reddit.com/r/weirdcore "r/weirdcore is a subreddit where you can post and submit your own original weirdcore images/edits, video compilations, or just post weirdcore pictures you found and thank the creators for it.")
+- [Nice Boys](https://youtu.be/qA0sjK7ePdc?si=indUbV51n_aPWca9 "A weirdcore music by Temporex")
+- [Jack StauberFlash](https://youtube.com/@JackStauber?si=Tzaq3Eq1Z52Q2QyN)
+- [Dreamcore](https://aesthetics.fandom.com/wiki/Dreamcore "Dreamcore is another aesthetic that has the surreal vibes of weirdcore and also features pastel colors and dream-like places. Most of the times people confuse weirdcore and dreamcore a lot.")
+- [YKWIM?](https://youtu.be/_C9rRLDimfQ?si=94UIt9TPDYEqjV1J "A really good music by Yot Club")
+- [Liminal Spaces](https://aesthetics.fandom.com/wiki/Liminal_Space "Liminal Spaces can be described as what make weirdcore really weirdcore. Liminal Spaces include places which give an eerie vibe. Some great examples of Liminal Spaces are: Empty corridors, or empty malls and grocery stores.")
+- [Where the sun go ?](https://www.reddit.com/r/LiminalSpace/s/heBsNpTT5P "a very surreal image, it presents an environment lit in a natural way but without any sky")
+- [TikTok Weirdcore video compilationsFlash](https://youtu.be/C2lMtKsY57s?si=IJSVrCxlNUIEr6wv "TikTok Weirdcore compilations are collections of short videos that have weirdcore vibes.")
+- [Smiley sky](https://pin.it/146ziIdMP)
+- [the way of mushrooms](https://pin.it/16CDXO1B4)
+- [Anemoia](https://en.everybodywiki.com/Anemoia "A feeling of nostalgia to unknown things in unknown places and unknown times. This feeling is commonly used in weirdcore aesthetics")
+- [K.k. Parade](https://youtu.be/-Ix5HIS5f3g?si=SVIRn63LPzdcd6Yo)
+- Black boxes/circles
+- [Kidcore](https://aesthetics.fandom.com/wiki/Kidcore "Kidcore is an aesthetic that centers around bright colors, nostalgia for icons from the 90s, and kid themes")
+- [The weirdcore discord](https://discord.gg/WP9DqkDS47 "There is a discord server that brings the Weirdcore community together")
+- Picrew Weirdcore and Dreamcore OC Creators
+- [Oddcore, Strangecore](https://aesthetics.fandom.com/wiki/Weirdcore "another name given to aesthetics")
+- [Traumacore](https://aesthetics.fandom.com/wiki/Traumacore "Traumacore is another weirdcore-like internet aesthetic that gives the vibes of trauma. This includes pastel colors (mostly pink), and famous cartoon characters (like Hello Kitty!).")
+- Repeating Text
+- [Eye lady](https://pin.it/5Gla4yl4u)
+- [Dreamcore and Weirdcore misconception](https://youtu.be/I63o3HGKjlo?si=d1JTxAUT-Wh35VBF "Lots of people mistake weirdcore and dreamcore, so be careful not to do that. Weirdcore usually focuses on the surrealism, while dreamcore focuses more on dream-like vibes.")
+- [LSD Dream Emulator](https://en.wikipedia.org/wiki/LSD:_Dream_Emulator "A PS1/PS2 video game made in 1998 with dreamy and surrealistic vibes.")
+- [elckip](https://elckip.tumblr.com/ "elckip is a Tumblr user which usually makes weirdcore images and videos.")
+- JPEG Compression
+- [Hand invasion](https://pin.it/2LeY43hA1)
+- [Reflect](https://pin.it/7f0XVNU45)
+- [Greetings from cornhenge](https://fancyglassesgamer.itch.io/greetings-from-the-cornhenge-a-weirdcoretraumacore-game "A weirdcore/traumacore video game available for PC")
+- [CutecoreFlash](https://aesthetics.fandom.com/wiki/Cutecore "Cutecore (also known as Cutegore) is an online aesthetic including image edits that combine typical kawaii imagery with slight traces of gore")
+- [Level 9223372036854775811](https://backrooms-freewriting.fandom.com/wiki/Level_9223372036854775811 "This is a backrooms level which has dreamcore/weirdcore vibes to it.")
+- [PureDragonn](https://puredragonn.tumblr.com/ "a weirdcore image maker")
+- [destruction1999x](https://destruction1999x.tumblr.com/ "A weirdcore artist")
+- Eyes
+- [Take a sit](https://pin.it/6KSdrkRrm)
+- Unintentional Weirdcore
+- [The first ever weirdcore editLost](https://ki55ed.tumblr.com/post/162359439298 "It's a mystery, but the earliest one found is this")
+- [Smile for me: The Apartment](https://youtu.be/XaPb54fho-U?si=FP_MmjN00uhkbNiV)
+- ["Are you Real ?"](https://www.deviantart.com/subfemtwink1234/art/Weirdcore-3-950146809 "A Weirdcore image from user Subfemtwink in DevianArt")
+- [3k0o_x](https://youtube.com/@3k0o_x?si=bYqd1889tm829k1s "A YouTube channel focusing on weirdcore")
+- [Machta laterrougeFlash](https://youtube.com/@machtalaterrouge?si=Yc6AyN9IVWUD7UU6 "an incredible artist who does a sick job on these videos")
+- [Lincon Shark Tumblr](http://linconshark.tumblr.com/ "My Tumblr blog, where I sometimes post weirdcore.")

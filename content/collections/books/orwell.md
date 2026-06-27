@@ -1,0 +1,162 @@
+---
+title: "orwell"
+---
+
+## Most popular
+- George Orwell
+- Original
+- Big Brother
+- WAR IS PEACE, FREEDOM IS SLAVERY, IGNORANCE IS STRENGTH
+- Newspeak
+- North Korea / China / Russia
+- Mass surveillance
+- Thoughtcrime
+- Oceania
+- Historical revisionism
+- The Party
+- Propaganda
+- Doublethink
+- Words and terms originating from the book
+- 1984 film
+- Big Brother is watching you
+- Apple / Epic Games ads
+- "Big Brother" reality show
+## Actually read the book
+- 1956 film
+- The Principles of Newspeak (Appendix)
+- Oceania is only British Isles
+- Winston Smith
+- Julia
+- 2+2=5
+- O'Brien
+- Helicopters
+- 1984 (For the Love of Big Brother)
+- The Ministries
+- The Theory and Practice of Oligarchical Collectivism
+- Emmanuel Goldstein
+- Proles
+- Eurasia and Eastasia
+- Eurasia and Eastasia never existed
+- All 3 superpowers are the same
+- Big Brother based on Hitler / Stalin / Kitchener
+- The Perpetual War
+- Oceania has been at war with Eastasia, therefore Eastasia has been at war with Oceania
+- The Appendix confirms the regime's end
+- The West
+- If you want a picture of the future, imagine a boot stamping on a human face — forever
+- Inspired by Nazism and Communism
+- London
+- The Brotherhood
+- He gazed up at the enormous face. Forty years it had taken him to learn what kind of smile was hidden beneath the dark moustache. O cruel, needless misunderstanding! O stubborn, self-willed exile from the loving breast! Two gin-scented tears trickled down the sides of his nose. But it was all right, everything was all right, the struggle was finished. He had won the victory over himself. He loved Big Brother.
+- Graphic novel
+- Do it to Julia!
+- Oceania attacks itself
+- The Times
+- "Oranges and lemons," say the bells of St. Clement's.
+- Room 101
+## Might missed it while reading
+- Goldstein resambles Leon Trotsky
+- Sexcrime
+- Oceania was created by the USA
+- TV versions
+- Geography (France, Germany, China, Russia, Vistula, etc.)
+- O'Brien reading Winston's minds
+- If there is hope, it lies in the proles
+- Censorship of the book
+- Technology
+- Mr. Charrington
+- Parsons'
+- Inspired media (books, films, games, etc.)
+- Oceania is the whole world
+- The Brotherhood doesn't exist
+- Goldstein is a fiction
+- Who controls the past controls the future; who controls the present controls the past.
+- We shall meet in the place where there is no darkness.
+- Unperson
+- We are the dead
+- "Float like a soap bubble"
+- It was a bright cold day in April, and the clocks were striking thirteen.
+- Speakwrite
+- Accusations of plagiarism
+- Airstrip One
+- Two Minutes Hate
+- Iran
+- Inspired by "We"
+- Black Market
+- Enver Hoxha's Albania
+## Deep dive
+- Oceania is post-Axis victory Britain
+- Songs
+- Spongebob: "Back to the Past"
+- Games' modifications (HOI4, World Conqueror 4, etc.)
+- Oceania's currency are dollars
+- Radio / Audiobooks
+- Theater
+- Floating Fortresses
+- Nuclear war
+- There was no nuclear war
+- Pol Pot's Cambodia / Nguema's Equatorial Guinea
+- Junior Anti-Sex League
+- Aaronson, Jones and Rutherford
+- 1984 was created because Orwell's wife died
+- Down with Big Brother
+- Manga
+- Thoughtcrime does not entail death: thoughtcrime IS death
+- If, for example, it would somehow serve our interests to throw sulphuric acid in a child's face — are you prepared to do that?
+- The Golden Country
+- You do not exist
+- Nothing was your own except the few cubic centimeters inside your skull.
+- You asked me once what was in Room 101. I told you that you knew the answer already. Everyone knows it. The thing that is in Room 101 is the worst thing in the world.
+- The more men you've had, the more I love you.
+- O'Brien is a double agent
+- The Party could be defeated by the sexual feelings
+- Autobiographical themes
+- Under the spreading chestnut tree, I sold you and you sold me...
+- Eastasia is Japan-based
+- Orwells' condition influenced the atmosphere of the book
+- The Spies
+- Oceania is actually utopia
+- Goldstein = typical demonized boogeyman like Bill Gates or Donald Tusk
+- 2023 film
+- The Civil War
+- Misc. references in media
+## In-depth look
+- Opera
+- Homosexuality
+- 1931 5-year plan "2+2=5" Soviet poster
+- Goldstein transforming into a sheep based on Trotsky transforming into a goat
+- Spongebob "1984" comics
+- Ballet
+- The Appendix was written before the book plot
+- Ampleforth
+- Katharine
+- Syme
+- Actual places in London
+- Bumstead
+- Exactly. By making him suffer. Obedience is not enough. Unless he is suffering, how can you be sure that he is obeying your will and not his own?
+- It is intolerable to us that an erroneous thought should exist anywhere in the world, however secret and powerless it may be. Even in the instant of death we cannot permit any deviation.
+- Comrade Ogilvy
+- You will be hollow. We shall squeeze you empty and then we shall fill you with ourselves
+- Pretty smart for a nipper of seven, eh?
+- If they can stop me from loving you, that would be the real betrayal
+- An Alternate Ending
+- America's Stepbrother / America's Enemy V2.0
+- Duckspeak
+- Blackwhite
+- David Bowie's unmade musical
+- Sanity is not statistical
+- Goldstein inspired by Emma Goldman
+- Julia was pregnant
+- Julia and Winston were siblings
+- Martin
+- Joycamps
+- Julia based on Orwell's 2nd wife
+- "The Last Man in Europe"
+- Newspeak inspired by Basic English
+- Julia was lobotomised
+- PornSec
+- A Clockwork Orange similarity
+- Big Boss is watching you
+- Internet animations
+- Tokubetsu Kōtō Keisatsu
+- 1Q84

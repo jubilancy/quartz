@@ -1,0 +1,133 @@
+---
+title: "liminal media"
+---
+
+- The Odyssey
+- Hamlet
+- Eternal Sunshine of the Spotless Mind
+- Midsommar
+- The Matrix
+- The Shining
+- 2001: A Space Odyssey
+- Forrest Gump
+- Inception
+- Interstellar
+- Memento
+- The Truman Show
+- The Breakfast Club
+- Liminal space Youtube playlists
+- The Backrooms Wiki
+- Kane Pixels
+- Everywhere at the End of Time
+- Backrooms videogames
+- Coraline
+oH liKe ThE BaCkRoOmS
+- Ovid's Metamorphosis
+- Dark Tower series
+- House of Leaves
+- Beowulf
+- The Divine Comedy
+- Life of Pi
+- A Beautiful Mind
+- Donnie Darko
+- Eraserhead
+- The Lost Boys
+- Shutter Island
+- Twin Peaks
+- Apollo 13
+- The Green Mile
+- Saving Private Ryan
+- Arrival
+- The NeverEnding Story
+- The Killing of a Sacred Deer
+- Us
+- Kafka on the Shore
+- Pan's Labyrinth
+- Blade Runner 2049
+over zealous film student
+- Rooms by the Sea
+- Being John Malkovich
+- Anselm Kiefer
+- Leonard Koscianski
+- Jorge Luis Borges
+- Departures
+- Blindness
+- Mulholland Drive
+- 12 Monkeys
+- The Curious Case of Benjamin Button
+- Vivarium
+- The Ocean at the End of the Lane
+- Melancholia
+- I'm Thinking of Ending Things
+- Halo: Combat Evolved
+still thinks they're a child; spends too much time at the art museum
+- Liminal by Tow'rs
+- Liminal by Holding Absence
+- Liminal Frames
+- Liminal by The Acid
+- The Lighthouse
+- Liminal Spaces by zzzahara
+- Liminal by Chase Petra
+- Chungking Express
+- Compartment C Car
+- Narrow Valley
+- Negative Space
+- The Elvis Room
+- The Talisman
+- Windeye
+- The Darkest Part of the Woods
+- Two Houses
+- The Summer People
+- Dark Matter
+- The Explorer
+- Hippocampus
+- Liminal Spaces
+- Alice Isn't Dead
+- The Raw Shark Texts
+- The Hands
+- Travelers Rest
+- The Willows
+- The Way Inn
+- Subcutanean
+- The Hollow Places
+- You Should Have Left
+- H is for Hawk
+- Life and Non-life
+- T.S Eliot
+- Descendant
+- Flatliners
+- Chocolat
+- Babette's Feast
+- Island of Hungry Ghosts
+- Limbo
+- Nine Days
+- The Others
+- The Straight Story
+- The Tree of Life
+- Bridge of Spies
+- Castaway
+- The Terminal
+- Dejavu
+- Horse Girl
+- A Cure for Wellness
+- Navigating Early
+- Pi
+- The Wicker Man
+- Eyes Wide Shut
+- Enemy
+- Cube
+- A Good Man is Hard to Find
+(compares every decision to standing before the doors of Janus)
+- Liminality and Time
+- Stigmata
+- Nomadland
+- CAC
+- Between Places and Spaces: Landscapes of Liminality
+- Mary Farrell
+- Wyrd and Other Derelictions
+- Sommernatt
+- The Ritual Process: Structure and Anti-Structure
+- Rites of Passage
+- Lincoln in the Bardo
+- The Whale Caller
+- The Liminality Project

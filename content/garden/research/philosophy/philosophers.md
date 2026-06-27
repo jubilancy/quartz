@@ -1,0 +1,450 @@
+---
+title: "philosophersmd"
+---
+
+# philosophers.md
+
+> Published on Jan 8, 2026
+
+#  [New Philosophers Iceberg](https://icebergcharts.com/i/New_Philosophers) 📋
+- Adam Smith
+- Alain Badiou
+- Alain de Benoist
+- Alan Watts
+- Albert Camus
+- Aldous Huxley
+- Aleister Crowley
+- Alexander Bard
+- Alexander Herzen
+- Alexander von Humboldt
+- Alexandr Dugin
+- Alfredo Bonanno
+- Amadeo Bordiga
+- Anaximander
+- Anaximenes
+- Andrew Culp
+- Antisthenes
+- Anton Pannekoek
+- Antonin Atraud
+- Antonio Gramsci
+- Antonio Labriola
+- Antonio Negri
+- Aragorn
+- Aristotle
+- Arthur Schopenhauer
+- Auguste Comte
+- Averroes
+- Avicenna
+- Ayn Rand
+- Bao Jingyan
+- Baruch Spinoza
+- Benjamin Franklin
+- Benjamin Tucker
+- Bertrand Russel
+- Blaise Pascal
+- Bob Black
+- Bruno Bauer
+- Byung Chul Han
+- Carl Gustav Jung
+- Carl Schmitt
+- CCRU
+- Charles Darwin
+- Charles Fourier
+- Charles Maurras
+- Confucius
+- Curtis Yarvin
+- D.Z. Rowan
+- Daniel De Leon
+- Daniel Guerin
+- David Hume
+- David Ricardo
+- Democritus
+- Denis Diderot
+- Desert
+- Diogenes
+- Dmitry Pisarev
+- Donna Haraway
+- Dora Marsden
+- Duane Rousselle
+- Edmund Bernstein
+- Edmund Burke
+- Edmund Husserl
+- Edward Carpenter
+- Emil Cioran
+- Emma Goldman
+- Epicurus
+- Erasmus of Rotterdam
+- Erich Fromm
+- Ernesto Laclau
+- Ernst Junger
+- Felix Guattari
+- Filippo Tomasso Marinetti
+- Flower Bomb
+- Francis Bacon
+- Franco Bifo Berardi
+- Francois Noel Babeuf
+- Francois Quesnay
+- Frank Van Dun
+- Franz Kafka
+- Fredy Perlman
+- Friedrich Engels
+- Friedrich Nietzsche
+- Friedrich Schelling
+- Friedrich von Hayek
+- Fumiko Kaneko
+- Fyodor Dostoyevsky
+- Gary Snyder
+- Georg Wilhelm Hegel
+- George Berkeley
+- George Orwell
+- Georges Bataille
+- Georges Palante
+- Georges Sorel
+- Gilbert Keith Chesterton
+- Gilles Dauve
+- Gilles Deleuze
+- Gilles Duave
+- Giorgio Agamben
+- Giovanni Gentile
+- Gottfried Leibnitz
+- Gustav Landauer
+- Guy Debord
+- Gyorgy Lukacs
+- Hakim Bey
+- Hannah Arendt
+- Hans Hermann Hoppe
+- Hegesias
+- Henri de Saint Simon
+- Henry Bergson
+- Henry David Thoreau
+- Heraclitus
+- Herbert Marcuse
+- Herbert Read
+- Herbert Spencer
+- Horace
+- Howard Philips Lovecraft
+- Howard Philps Lovecraft
+- Igor Severyianin
+- Immanuel Kant
+- Jacques Camatte
+- Jacques Derrida
+- Jacques Lacan
+- James L Walker
+- Jason McQuinn
+- Jean Baudrillard
+- Jean Francois Lyotard
+- Jean Jacques Rousseau
+- Jean Paul Sartre
+- Jean Pierre Voyer
+- Jesus Christ
+- Johann Fichte
+- Johann von Goethe
+- John Henry Mackay
+- John Locke
+- John Rawls
+- John Stuart Mill
+- John Zerzan
+- Jonas Nilsson
+- Jose Carlos Mariategui
+- Joseph de Maistre
+- Josiah Warren
+- Judith Butler
+- Julien Coupat
+- Julius Evola
+- Jun Tsuji
+- Karl Kautsky
+- Karl Marx
+- Karl Popper
+- Ken Knabb
+- Kristian Lamprecht
+- Lao Tzu
+- Leo Strauss
+- Leo Tolstoy
+- Lewis Call
+- Louis Althusser
+- Lu Xun
+- Ludwig Feuerbach
+- Ludwig von Mises
+- Ludwig Wittgenstein
+- Lysander Spooner
+- Marcus Aurelius
+- Margaret Killjoy
+- Mario Tronti
+- Mark Fisher
+- Marquis de Sade
+- Martin Buber
+- Martin Heidegger
+- Max Stirner
+- Michael Onfray
+- Michel Foucault
+- Mikhail Bakunin
+- Milton Friedman
+- Monsieur Dupont
+- Montesquieu
+- Moses Hess
+- Mozi
+- Murray Bookchin
+- Murray Rothbard
+- Niccolo Machiavelli
+- Nick Land
+- Nick Srnicek
+- Nicolas Malebranche
+- Nikolay Chernyshevsky
+- Noam Chomsky
+- Nyx Land
+- Oscar Wilde
+- Osugi Sakae
+- Oswald Spengler
+- Pentti Linkola
+- Peter Abelard
+- Petr Kropotkin
+- Philip Mainlander
+- Pierre Joseph Proudhon
+- Plato
+- Plotinus
+- Protagoras
+- Pyrrhon
+- Pythagoras
+- Ragnar Redbeard
+- Raoul Vaneigem
+- Ray Brassier
+- Rene Descartes
+- Renzo Novatore
+- Reza Negarestani
+- Richard Dawkins
+- Robert LeFevre
+- Robert Nozick
+- Roger Scruton
+- Roland Barthes
+- Rosa Luxemburg
+- Rudolf Rocker
+- Sadie Plant
+- Samuel Edward Konkin
+- Saul Newman
+- Seneca
+- Sergey Nechayev
+- Siddhartha Gautama
+- Sigmund Freud
+- Simone de Beauvoir
+- Slavoj Zizek
+- Socrates
+- Soren Kierkegaard
+- St Augustine
+- St Thomas Aquinas
+- Terence McKenna
+- Thales
+- Theodor Adorno
+- Thomas Hobbes
+- Thomas More
+- Tiqqun
+- Todd May
+- Umberto Eco
+- Ursula K Le Guin
+- Valentine Saint-Point
+- Vikky Storm
+- Voltaire
+- Voltairine de Cleyre
+- William Godwin
+- William Ockham
+- William Thompson
+- Wolfi Landstreicher
+- Xenogothic
+- Yuval Harari
+- Zeno of Cithium
+- Zeno of Elea
+- Zhuang Zhou
+
+#  [Philosopherss Iceberg](https://icebergcharts.com/i/Philosopherss) 📋
+
+## Level 1: 14 year old
+
+- [Plato](https://en.wikipedia.org/wiki/Plato "world of forms, platos state, platonic love, the cave")
+- [Aristotle>](https://en.wikipedia.org/wiki/Aristotle "individualism, metaphysics, logic, biology")
+- [Socrates](https://en.wikipedia.org/wiki/Socrates "socratic method, intellectualism")
+- [René Descartes](https://en.wikipedia.org/wiki/Ren%C3%A9_Descartes "\"cogito, ergo sum\", dualism, ethics")
+- [Friedrich Nietzsche](https://en.wikipedia.org/wiki/Friedrich_Nietzsche "übermensch, death of god, atheism, idealism sucks")
+- [Immanuel Kant](https://en.wikipedia.org/wiki/Immanuel_Kant#Racism "metaphysics, ethics, Transcendental idealism")
+- [Jean-Paul Charles Aymard Sartre](https://en.wikipedia.org/wiki/Jean-Paul_Sartre "existentialism, marxism")
+- [John Locke](https://en.wikipedia.org/wiki/John_Locke "politics, empiricism")
+- [Confucius](https://en.wikipedia.org/wiki/Confucius#Philosophy "confucianism, golden rule, politics")
+- [Bertrand Arthur William Russell](https://en.wikipedia.org/wiki/Bertrand_Russell "analytic philosophy, metaphysics, The Will to Doubt")
+- [Sigmund Freud](https://en.wikipedia.org/wiki/Sigmund_Freud "founder of psychoanalysis")
+- [Jesus of Nazareth](https://en.wikipedia.org/wiki/Jesus "I know he isnt considered a philosopher by most people but he could be looked at this way, theology, kindness")
+- [Thomas Jefferson](https://en.wikipedia.org/wiki/Thomas_Jefferson "politics, morals")
+
+
+
+## Level 2: Trolley Problem enjoyer
+
+- [Karl Heinrich Marx](https://en.wikipedia.org/wiki/Karl_Marx "Marxism/Communism, \"Das Kapital\", history was always about class wars")
+- [Arthur Shopenhauer](https://en.wikipedia.org/wiki/Arthur_Schopenhauer "metaphysics, the will, pessimism")
+- [St. Thomas Aquinas](https://en.wikipedia.org/wiki/Thomas_Aquinas "Theology, Epistemology")
+- [Albert Camus <3](https://en.wikipedia.org/wiki/Albert_Camus "Absurdism, \"one must imagine Sisyphus happy\", the rebell")
+- [Epicurus<3](https://en.wikipedia.org/wiki/Epicurus "epistemology, epicureanism, friends are cool")
+- [St. Augustine of Hippo](https://en.wikipedia.org/wiki/Augustine_of_Hippo "theology")
+- [David Hume](https://en.wikipedia.org/wiki/David_Hume#Impressions_and_ideas "Principles of association, emotions over reason")
+- [Thomas Hobbes>](https://en.wikipedia.org/wiki/Thomas_Hobbes "Politics, Leaviathan, humans are selfish")
+- [Voltaire](https://en.wikipedia.org/wiki/Voltaire "satire")
+- [Sun tzu](https://en.wikipedia.org/wiki/Sun_Tzu "the art of war, haha minecraft")
+- [Baruch de Spinoza<3](https://en.wikipedia.org/wiki/Baruch_Spinoza "Spinozas universe/god, disliked the christian/jewish idea of god")
+- [Gottfried Wilhelm von Leibniz](https://en.wikipedia.org/wiki/Gottfried_Wilhelm_Leibniz "rationalism, optimism")
+- [Georg Wilhelm Friedrich Hegel](https://en.wikipedia.org/wiki/Georg_Wilhelm_Friedrich_Hegel "german idealism, we should learn from history")
+- [Pythagoras of Samos](https://en.wikipedia.org/wiki/Pythagoras "Mathematics, the kosmos is made out of numbers, also let a cult")
+- [Francis Bacon](https://en.wikipedia.org/wiki/Francis_Bacon#Philosophy_and_works "science")
+- [Friedrich Engels](https://en.wikipedia.org/wiki/Friedrich_Engels "Marxism")
+- [Al-Ghazali](https://en.wikipedia.org/wiki/Al-Ghazali "islamic")
+- [Ayn Rand/Alice O'Connor](https://en.wikipedia.org/wiki/Ayn_Rand "Objectivism")
+- [Jacques Derrida](https://en.wikipedia.org/wiki/Jacques_Derrida "Continental philosophy, Post-structuralism")
+- [Aleister Crowley](https://en.wikipedia.org/wiki/Aleister_Crowley "whilest mostly known for his occult books and his status as a cult leader, he also had an interessting philosophy of extreme hedonism")
+- [Marcus Tullius Cicero](https://en.wikipedia.org/wiki/Cicero "politics, \"Summum bonum\", \"Exception that proves the rule\"")
+- [Terence Kemp McKenna](https://en.wikipedia.org/wiki/Terence_McKenna "took a lot of drugs")
+- [Franz Kafka<3](https://en.wikipedia.org/wiki/Franz_Kafka "kafkaesque, existential anxiety, absurdity")
+- [Judith Jarvis Thomson](https://en.wikipedia.org/wiki/Judith_Jarvis_Thomson "you probably dont know her, but she pretty much invented the trolley problem and wrote a lot about it")
+- [Aleksandr Isayevich Solzhenitsyn](https://en.wikipedia.org/wiki/Aleksandr_Solzhenitsyn "critic of the west")
+- [Jordan Bernt Peterson](https://en.wikipedia.org/wiki/Jordan_Peterson "how to be happy, conservatism, ideology")
+- [Jeremy Bentham](https://en.wikipedia.org/wiki/Jeremy_Bentham "Utilitarianism")
+
+
+
+## Level 3: Has read a book
+
+- [Adam Smith](https://en.wikipedia.org/wiki/Adam_Smith "Libertarianism, free market, \"the invisible hand\"")
+- [Paul-Michel Foucault](https://en.wikipedia.org/wiki/Michel_Foucault "postmodernism, the medical gaze, biopower, also pedophile lmao")
+- [Diogenese of Sinope<3](https://en.wikipedia.org/wiki/Diogenes "Cynicism, said fuck off to the emperor, pissed on people, masturbated publicly, based")
+- [Martin Heidegger](https://en.wikipedia.org/wiki/Martin_Heidegger "Dasein in being and time")
+- [Ludwig Josef Johann Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgenstein "Language game, Mathematics")
+- [Søren Aabye Kierkegaard](https://en.wikipedia.org/wiki/S%C3%B8ren_Kierkegaard "The Absurd, Angst, Leap of faith")
+- [Thales of Miletus](https://en.wikipedia.org/wiki/Thales_of_Miletus "Moneism, everything is water")
+- [Avicenna/Ibn Sina](https://en.wikipedia.org/wiki/Avicenna "theology")
+- [Niccolò di Bernardo dei Machiavelli](https://en.wikipedia.org/wiki/Niccol%C3%B2_Machiavelli "morals, \"The end justify the means\", politics")
+- [Laozi](https://en.wikipedia.org/wiki/Laozi "The dao")
+- [William James](https://en.wikipedia.org/wiki/William_James "Pragmatism, will to believe")
+- [Slavoj Žižek<3](https://en.wikipedia.org/wiki/Slavoj_%C5%BDi%C5%BEek "Marxism, ideoligy, speaks funni :)")
+- [Mozi>](https://en.wikipedia.org/wiki/Mozi "Mohism, ethics, love")
+- [Gautama Buddha](https://en.wikipedia.org/wiki/Gautama_Buddha "Buddhism, the middle way")
+- [Marcus Aurelius Antoninus](https://en.wikipedia.org/wiki/Marcus_Aurelius "Stoicism")
+- [Jean-Jacques Rousseau](https://en.wikipedia.org/wiki/Jean-Jacques_Rousseau#Philosophy "\"Man is born free, and everywhere he is in chains\", savages")
+- [Simone Lucie Ernestine Marie Bertrand de Beauvoir](https://en.wikipedia.org/wiki/Simone_de_Beauvoir "feminism")
+- [Blaise Pascal](https://en.wikipedia.org/wiki/Blaise_Pascal "mathematics, rationalism")
+- [Zeno of Citium](https://en.wikipedia.org/wiki/Zeno_of_Citium "founder of stoicism")
+- [Francisco Suárez](https://en.wikipedia.org/wiki/Francisco_Su%C3%A1rez "Scholasticism, theology")
+- [Pierre-Joseph Proudhon](https://en.wikipedia.org/wiki/Pierre-Joseph_Proudhon "Anarchism, socialism")
+- [Parmenides of Elea](https://en.wikipedia.org/wiki/Parmenides "\"Thought and being are the same\"")
+- [Vyasa](https://en.wikipedia.org/wiki/Vyasa "theology (hinduism), Samkhya")
+- [Martha Craven Nussbaum](https://en.wikipedia.org/wiki/Martha_Nussbaum "Analytic philosophy, Aristotelianism, feminism")
+- [John Wycliffe](https://en.wikipedia.org/wiki/John_Wycliffe "scholasticism, theology")
+- [Hannah Arendt](https://en.wikipedia.org/wiki/Hannah_Arendt "the banality of evil")
+- [Denis Diderot](https://en.wikipedia.org/wiki/Denis_Diderot#Death_and_burial "Atheism, The Skeptic's Walk")
+- [Mikhail Alexandrovich Bakunin](https://en.wikipedia.org/wiki/Mikhail_Bakunin "collectivist anarchism")
+- [Michel Eyquem de Montaigne](https://en.wikipedia.org/wiki/Michel_de_Montaigne "psychology, ethics")
+- [Zhuang Zhou](https://en.wikipedia.org/wiki/Zhuang_Zhou "Taoism, Zhuangzi")
+- [George Berkeley](https://en.wikipedia.org/wiki/George_Berkeley "Subjective idealism")
+
+
+
+## Level 4: political extremist
+
+- [Lucius Annaeus Seneca the Younger](https://en.wikipedia.org/wiki/Seneca_the_Younger "Stoicism")
+- [Max Stirner/Johann Kaspar Schmidt](https://en.wikipedia.org/wiki/Max_Stirner "Egoism, anarchie, spooks")
+- [Heraclitus of Ephesus](https://en.wikipedia.org/wiki/Heraclitus "Ionian, everything is made out of fire")
+- [Anaximenes of Miletus](https://en.wikipedia.org/wiki/Anaximenes_of_Miletus "Ionian, everything is made out of air")
+- [Ludwig Andreas von Feuerbach<3](https://en.wikipedia.org/wiki/Ludwig_Feuerbach "Atheism, Theism is actually Anthropology")
+- [Ralph Waldo Emerson](https://en.wikipedia.org/wiki/Ralph_Waldo_Emerson "nature and theology")
+- [Protagoras>](https://en.wikipedia.org/wiki/Protagoras "relativism")
+- [Moses ben Maimon](https://en.wikipedia.org/wiki/Maimonides "theology")
+- [Desiderius Erasmus Roterodamus](https://en.wikipedia.org/wiki/Erasmus "theology, humanism")
+- [John Stuart Mill](https://en.wikipedia.org/wiki/John_Stuart_Mill "Empiricism, liberalism")
+- [Henry David Thoreau](https://en.wikipedia.org/wiki/Henry_David_Thoreau "Transcendentalism, doesnt pay taxes")
+- [Edmund Burke](https://en.wikipedia.org/wiki/Edmund_Burke "society or something idk")
+- [Nikolai Alexandrovich Berdyaev](https://en.wikipedia.org/wiki/Nikolai_Berdyaev#Philosophical_work "human freedom, theology")
+- [Johann Gottlieb Fichte](https://en.wikipedia.org/wiki/Johann_Gottlieb_Fichte "german idealism, the absolute consciousness, the not-I")
+- [Thomas Reid](https://en.wikipedia.org/wiki/Thomas_Reid "common sense")
+- [Epictetus](https://en.wikipedia.org/wiki/Epictetus "stoicism")
+- [Jean Baudrillard](https://en.wikipedia.org/wiki/Jean_Baudrillard "post-structuralist, semiotics")
+- [Democritus](https://en.wikipedia.org/wiki/Democritus "Atomism")
+- [Mencius](https://en.wikipedia.org/wiki/Mencius "Confucianism")
+- [John Dewey](https://en.wikipedia.org/wiki/John_Dewey "Reflective thinking, reformed education")
+- [Peter Albert David Singer](https://en.wikipedia.org/wiki/Peter_Singer "morals. fucking animals isnt bad")
+- [Plutarch](https://en.wikipedia.org/wiki/Plutarch "Middle Platonism")
+- [Paul Karl Feyerabend](https://en.wikipedia.org/wiki/Paul_Feyerabend "Epistemological anarchism")
+- [Zeno of Elea](https://en.wikipedia.org/wiki/Zeno_of_Elea "inventor of dialectic, famous for his paradoxes")
+- [François Marie Charles Fourier](https://en.wikipedia.org/wiki/Charles_Fourier "feminism, utopian socialism")
+- [Pyrrho of Elis<3](https://en.wikipedia.org/wiki/Pyrrho "Pyrrhonism, knowledge doesnt exist")
+- [Emil Mihai Cioran](https://en.wikipedia.org/wiki/Emil_Cioran "pessimisn, anti-natalism")
+- [Hypatia](https://en.wikipedia.org/wiki/Hypatia "Neoplatonism")
+- [Nick Land](https://en.m.wikipedia.org/wiki/Nick_Land "Accelerationism")
+- [Harry Gordon Frankfurt](https://en.wikipedia.org/wiki/Harry_Frankfurt "wrote an essay called \"on bullshit\", funny guy all around")
+- [Thomas Nagel](https://en.wikipedia.org/wiki/Thomas_Nagel "Panpsychism")
+- [Ramon Llull](https://en.wikipedia.org/wiki/Ramon_Llull "theology, Lullist thought, lul")
+- [Anaximander](https://en.wikipedia.org/wiki/Anaximander "The apeiron is the arche")
+- [Gilbert Ryle](https://en.wikipedia.org/wiki/Gilbert_Ryle "\"ghost in the machine\", language")
+- [William of Ockham](https://en.wikipedia.org/wiki/William_of_Ockham "theology, Occam's razor")
+- [Aldo Leopold](https://en.wikipedia.org/wiki/Aldo_Leopold "\"Think like a mountain\", ecology")
+- [Matsuo Bashō](https://en.wikipedia.org/wiki/Matsuo_Bash%C5%8D "Poetry")
+
+
+
+## Level 5: Ancient greek alpha male
+
+- [Tetsuro Watsuji>](https://en.wikipedia.org/wiki/Tetsuro_Watsuji "ethics")
+- [Karl Theodor Jaspers](https://en.wikipedia.org/wiki/Karl_Jaspers "psychology")
+- [Pyotr Alexeyevich Kropotkin](https://en.wikipedia.org/wiki/Peter_Kropotkin "Politics, marxism, anarchism")
+- [Gilles Deleuze<3](https://en.wikipedia.org/wiki/Gilles_Deleuze "didnt like psychoanalysis")
+- [Giulio Cesare Andrea Evola](https://en.wikipedia.org/wiki/Julius_Evola "magical idealism")
+- [Lucian Blaga](https://en.wikipedia.org/wiki/Lucian_Blaga "modernism")
+- [Leucippus](https://en.wikipedia.org/wiki/Leucippus "Atomism, Materialism")
+- [Mary Wollstonecraft](https://en.wikipedia.org/wiki/Mary_Wollstonecraft "feminism")
+- [Hajime Tanabe](https://en.wikipedia.org/wiki/Hajime_Tanabe "Existentialism")
+- [Sir Karl Raimund Popper](https://en.wikipedia.org/wiki/Karl_Popper "metaphysics, the truth")
+- [Theodor W. Adorno](https://en.wikipedia.org/wiki/Theodor_W._Adorno "intelligence is a moral category")
+- [St. Anicius Manlius Severinus Boethius](https://en.wikipedia.org/wiki/Boethius "Neoplatonism, theology")
+- [Xenophanes of Colophon](https://en.wikipedia.org/wiki/Xenophanes "Theology, Metaphysics, Epistemology")
+- [Alexander of Aphrodisias](https://en.wikipedia.org/wiki/Alexander_of_Aphrodisias "Peripatetic, didnt like stoicism")
+- [Pherecydes of Syros](https://en.wikipedia.org/wiki/Pherecydes_of_Syros "Cosmogony")
+- [Rudolf Joseph Lorenz Steiner](https://en.wikipedia.org/wiki/Rudolf_Steiner "Goethean science")
+- [Thiruvalluvar](https://en.wikipedia.org/wiki/Thiruvalluvar "ethics, ahimsa")
+- [Athenodorus Cananites](https://en.wikipedia.org/wiki/Athenodorus_Cananites "stoicism")
+- [Hegesias Of Cyrene](https://en.wikipedia.org/wiki/Hegesias_of_Cyrene "true happiness cant be achieved so we should focus on avoiding pain and sorrow. this motherfucker was so depressing that people nicknamed him \"Death-Persuader\"")
+- [Marcion of Sinope](https://en.wikipedia.org/wiki/Marcion_of_Sinope "theology, early christianity")
+- [René Jean-Marie-Joseph Guénon](https://en.wikipedia.org/wiki/Ren%C3%A9_Gu%C3%A9non "metaphysics")
+- [Karl Robert Eduard Hartmann](https://en.wikipedia.org/wiki/Eduard_von_Hartmann#Philosophical_work "the Unconscious, pessimism")
+- [Marquis de Sade](https://en.wikipedia.org/wiki/Marquis_de_Sade "Pornography, eroticism, sadism")
+- [Peter Wessel Zapffe](https://en.wikipedia.org/wiki/Peter_Wessel_Zapffe "Anti-natalism")
+- [Theodore John Kaczynski/The Unabomba](https://en.wikipedia.org/wiki/Ted_Kaczynski "Industrial Society and Its Future, also terrorist")
+- [Miguel de Unamuno y Jugo](https://en.wikipedia.org/wiki/Miguel_de_Unamuno "Agony of Christianity")
+- [Sextus Empiricus](https://en.wikipedia.org/wiki/Sextus_Empiricus "Pyrrhonism")
+- [Julius Friedrich August Bahnsen](https://en.m.wikipedia.org/wiki/Julius_Bahnsen "Realdialektik, characterology, pessimism")
+- [Friedrich Theodor Vischer](https://en.m.wikipedia.org/wiki/Friedrich_Theodor_Vischer "aesthatics")
+- [Otto Weininger](https://en.m.wikipedia.org/wiki/Otto_Weininger "Logic and ethics are one, Masculinity and femininity")
+- [Giacomo Leopardi](https://en.wikipedia.org/wiki/Giacomo_Leopardi "pessimism, romanticism")
+- [John Zerzan<3](https://en.wikipedia.org/wiki/John_Zerzan "anarcho-primitivism")
+- [Dōgen](https://en.wikipedia.org/wiki/D%C5%8Dgen "buddhism")
+- [Henry Sidgwick](https://en.wikipedia.org/wiki/Henry_Sidgwick "Average and total utilitarianism, hedonism")
+- [Ignaz Paul Vital Troxler](https://en.wikipedia.org/wiki/Ignaz_Paul_Vital_Troxler)
+
+
+
+## Level 6: based and probably suicidal
+
+- [Takuan Sōhō](https://en.wikipedia.org/wiki/Takuan_S%C5%8Dh%C5%8D "Buddhism")
+- [Philipp Mainländer>](https://de.wikipedia.org/wiki/Philipp_Mainl%C3%A4nder "pessimism")
+- [Philolaus](https://en.wikipedia.org/wiki/Philolaus "Pythagoreanism")
+- [Chrysippus of Soli](https://en.wikipedia.org/wiki/Chrysippus "Stoicism")
+- [Plotinus](https://en.wikipedia.org/wiki/Plotinus "Neoplatonism")
+- [Peregrinus Proteus](https://en.wikipedia.org/wiki/Peregrinus_Proteus "Cynicsism")
+- [Wilfrid Stalker Sellars](https://en.wikipedia.org/wiki/Wilfrid_Sellars "Critical realism")
+- [Nāgārjuna](https://en.wikipedia.org/wiki/Nagarjuna#Philosophy "buddism, Sunyata, two truths")
+- [Apollonius of Tyana](https://en.wikipedia.org/wiki/Apollonius_of_Tyana "Neopythagorism")
+- [Gorgias](https://en.wikipedia.org/wiki/Gorgias "Sophistic")
+- [David Benatar](https://en.wikipedia.org/wiki/David_Benatar "anti-natalism")
+- [Osamu Dazai](https://en.wikipedia.org/wiki/Osamu_Dazai "no longer human, pessimism")
+- [Ryūnosuke Akutagawa](https://en.wikipedia.org/wiki/Ry%C5%ABnosuke_Akutagawa "the will to die")
+- [Philitas of Cos](https://en.wikipedia.org/wiki/Philitas_of_Cos "he read a lot")
+- [Demonax](https://en.wikipedia.org/wiki/Demonax#Lucian's_Life_of_Demonax "Cynicism, starved himself")
+- [Neil Sinhababu](https://philpapers.org/archive/SINPG "he thinks his waifu is real")
+- [Emanuel Swedenborg](https://en.wikipedia.org/wiki/Emanuel_Swedenborg "theology, swedenborgism, spoke to demons and angels")
+- [Carlo Raimondo Michelstädter](https://en.m.wikipedia.org/wiki/Carlo_Michelstaedter "pessimism, the will is materialstic")
+- [Abū al-ʿAlāʾ al-Maʿarrī](https://en.wikipedia.org/wiki/Al-Ma%27arri "pessimism, Anti-natalism, Asceticism")
+- [Ulrich Horstmann](https://en.wikipedia.org/wiki/Ulrich_Horstmann "“The final aim of history is a crumbling field of ruins. Its final meaning is the sand blown through the eye-holes of human skulls.”")
+- [Metaspinoza<3](https://metaspinoza.carrd.co/ "neoleviathan, pessimism")
+

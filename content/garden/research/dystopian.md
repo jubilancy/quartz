@@ -1,0 +1,320 @@
+---
+title: "dystopian"
+---
+
+## Worldwide lore
+- Reality
+- Half-LifeVG
+- The MatrixF VG TV
+- 1984F B C TV G SI
+- Mike Pondsmith's CyberpunkC TV B VG S BG
+- The Hunger GamesF B VG
+- BioShockVG B
+- Blade RunnerF VG BG C B !!!
+- TerminatorF VG
+- The Handmaid's TaleB TV
+- FalloutC TV VG
+- The Last of UsTV VG
+- WALL-EF VG
+- BatmanF C TV VG
+- AvatarF B VG
+- Metal GearVG C
+- Assassin's CreedVG B C F
+- Marvel / DCF C TV VG
+- HaloTV VG C B
+- DoomF C VG
+- SCP FoundationB G
+- Demon Souls / Dark SoulsVG
+- Elden RingVG
+- Religions and beliefsB G
+- WestworldF TV
+- BackroomsB G
+- Squid GameTV
+## General information
+- MetroB VG C SI
+- Animal FarmF B C VG
+- Brave New WorldB TV
+- Fahrenheit 451F B VG
+- Ghost in The ShellF C TV VG
+- Deus ExVG B
+- Mad MaxF VG
+- Call of Duty: World at WarVG S
+- Hotline MiamiVG C !!!
+- V for VendettaF C
+- Black MirrorTV
+- Papers, PleaseVG F
+- The Maze RunnerF B
+- Watch DogsVG
+- Warhammer 40KVG BG B
+- Detroit: Become HumanVG
+- Madness CombatTV VG
+- Disco ElysiumVG
+- AkiraF C
+- Dead SpaceVG
+- Resident EvilF VG
+- A Clockwork OrangeF B
+- Neon Genesis EvangelionC TV
+- MachineGames' WolfensteinVG
+- Kanye West - StrongerS
+- NierTV VG
+- Samurai JackTV VG
+- HelldiversVG
+## Country-level Propaganda
+- KaiserreduxVG
+- The New Order: Last Days of EuropeVG S G
+- Psycho PassTV
+- Minority ReportF B TV
+- Battle RoyaleF B
+- The RoadF B
+- The PurgeF TV
+- SomaVG SI
+- Tom Clancy's The DivisionVG
+- Ready Player OneF B
+- DivergentF B
+- Total RecallF
+- SnowpiercerF TV C
+- HomefrontVG
+- Altered CarbonB TV
+- All TomorrowsB
+- Far Cry: Blood DragonVG
+- DishonoredVG
+- X-COMVG
+- The Man in the High CastleTV B
+- Attack on TitanTV
+- BerserkC F
+- Destiny 2VG
+- Devil May CryVG
+- The Hunt (2020)F
+- Civil War (2024)F
+- The Wall - Pink FloydF S
+- StrayVG
+- The Fire RisesVG
+- Mega Man ZeroVG
+## Gossips
+- System ShockVG
+- Don't Worry, DarlingF !!!
+- Red FloodVG S G
+- WeB F SI
+- Starship TroopersF B VG
+- Jin Roh: The Wolf BrigadeF
+- I Have No Mouth And I Must ScreamB VG
+- Sword Art OnlineC TV
+- GattacaF
+- BrazilF
+- Mirror's EdgeVG
+- Code GeassTV
+- Raised by WolvesTV
+- IdiocracyF
+- ElysiumF
+- Judge DreddF C VG
+- PersepolisF C
+- Lapse: A Forgotten FutureVG
+- Battle Angel AlitaF C
+- In TimeF
+- The Promised NeverlandC TV VG
+- The CaptureTV
+- The Humanity BureauF
+- IslandF
+- The Children of MenF B
+- ContagionF
+- Shin Megami TenseiVG
+- The Time MachineF B
+- Spec Ops: The LineVG !!!
+- PostalVG
+- HatredVG
+- The CreatorF
+- Killer7VG
+- LISAVG
+- Zdzisław Beksiński's worksG
+- Pearl Jam - Do The EvolutionS
+- SongbirdF
+- Cruelty SquadVG
+- Atomic HeartVG
+- InsideVG
+- SamosborTV VG G
+## Rebels' Database
+- Land of The BlindF
+- Æon FluxF TV
+- We Happy FewVG
+- The GiverF B
+- Person of InterestTV
+- SurrogatesF
+- 9F
+- The Running ManF B
+- ObserverVG
+- EquilibriumF
+- OddworldVG
+- PathologicVG SI
+- Atlas ShruggedB
+- Moscow 2042B
+- FatherlandF B
+- AnthemB
+- MetropolisB F
+- HrotVG
+- Remember MeVG
+- Soylent Green / Make Room! Make Room!F B
+- The Long WalkB
+- Demolition ManF
+- Not For BroadcastVG
+- Logan's RunF
+- Ion FuryVG
+- District 13F
+- Iron LungVG
+- They LiveF
+- Ergo ProxyTV C
+- Captain Laserhawk: A Blood Dragon RemixTV
+- Petrodragonic ApocalypseS
+- Total War: Pharaoh
+- 2025: The World enslaved by a VirusF
+- HarvesterVG
+- Serial Experiments LainTV VG C
+- SubmissionB
+- Max HeadroomF TV
+- UgliesB F
+- SIGNALISVG
+- Red FactionF VG
+- Bubblegum CrisisB C TV VG BG
+## Army's Intel
+- PrototypeVG
+- The Private EyeC
+- Futu.reB
+- Beyond a Steel Sky / Beneath a Steel SkyVG
+- Captive StateF SI
+- Virtual LightB
+- The LobsterF
+- EncodyaVG
+- BeholderVG
+- The Iron HeelB
+- It Happened HereF
+- Mother Russia BleedsVG
+- The AscentVG
+- Frontier(s)F
+- ChangedVG
+- CrossedC F
+- RollerballF
+- VisioneersF
+- THX 1138F
+- April and the Extraordinary WorldF
+- EcotopiaB
+- Entropy ZeroVG
+- Jennifer GovernmentB
+- SYNTHETIK: Legion RisingVG
+- UnwindB
+- Close to The SunVG
+- Bomberman: Act ZeroVG
+- The DarknessVG C
+- Y: The Last ManC
+- The Turner DiariesB !!!
+- Kanye Quest 3030VG
+- Phoenix PointVG
+- Tokyo Gore PoliceF
+- The Forever WinterVG
+- ConscriptVG
+- Network (1976)F
+- Nobody Wants To DieVG
+- The Sheep Look UpB
+- Nausicaä of the Valley of the WindF C
+- Mullet MadJackVG
+- Memories: Cannon FodderF
+- 3%TV
+- R.U.R.F TV S
+- Blame!C TV
+- VermisB VG
+- [Year Zero](https://en.wikipedia.org/wiki/Year_Zero_\(game\) "An album and accompanying ARG by Nine Inch Nails. Set in a dystopian 2020 where America has devolved into a theocratic police state, the environment is collapsing and more and more people are getting visions of a giant, mysterious hand.")
+- A Canticle for LeibowitzB
+## Elite knowledge
+- HydrophobiaVG
+- Pride and Fall: The Last Days of PolandVG SI
+- Player PianoB
+- LiberatedVG
+- SexmissionF VG
+- PeripeteiaVG
+- Seven SistersF
+- Ethnic CleansingVG
+- 1984 RewiredVG
+- OrwellVG
+- Black the FallVG
+- Mind ScannersVG
+- It Can't Happen HereB
+- HalfheadB
+- DisintegrationVG
+- Don't Bite the SunB
+- Snow CrashB
+- That Hideous StrengthB
+- CandideB
+- Always Coming HomeB
+- The Fifth Sacred ThingB
+- New York 2140B
+- Future Primitive: The New EcotopiasB
+- SlavicPunk: OldtimerB VG
+- The Machine StopsB
+- The Memory PoliceB
+- The Foundation PitB !!!
+- Humanity LostC
+- Left Behind: Eternal ForcesVG
+- OniVG
+- BlindnessB
+- Akudama DriveC TV
+- Bend SinisterB F
+- A Scanner DarklyB F
+- Flow My Tears, the Policeman SaidB
+- The Futurological CongressB F
+- The Great RebellionVG
+- E.Y.E.: Divine CybermancyVG
+- Girls' Last TourC TV
+- Extremis Ultimis: The Death of DemocracyVG G
+- The Metamorphosis of Prime IntellectB
+- Illuminati: New World OrderBG
+- Red World / Red World Fan ForkVG !!!
+- Kino's JourneyC TV F VG
+- Crusader: No Remorse / No RegretVG
+- G StringVG
+- Human No MoreBG
+## Erased from global awareness
+- EasternF
+- What Not: A Prophetic ComedyB
+- The City of Light (1924)B !!!
+- The Honeymoon Trip of Mr. HamiltonB
+- A History of the FutureB
+- Erotica 2022TV
+- Black OceansB
+- Daria Zawiałow - Kaonashi / LauraS
+- Daria Zawiałow - MetropolisS
+- The Day I Found a Girl in a TrashF
+- Van Troff's CylinderB
+- Return from the StarsB C
+- ZOG's NightmareVG
+- The Forbidden Book: A novelB
+- Ass Goblins of AuschwitzB SI
+- Lord of the WorldB
+- Harrison BergeronB
+- The PedestrianB
+- The Punishment of LuxuryB
+- DystopiaVG
+- ErewhonB
+- KallocainB
+- Woman on the Edge of TimeB
+- Riddley WalkerB
+- You are EmptyVG
+- The Age of the AntichristB
+- 1983TV
+- Apocalyptic VibesVG
+- Trump vs the IlluminatiF
+- Beyond SunsetVG
+- MeatB
+- Living SoulsB
+- Year 3333, or an unheard of dreamB
+- 3012: The Year of the ProphetB
+- The Suicide ShopF B
+- Birdboy: The Forgotten ChildrenF
+- Syndicate (1993)VG
+- The Sleeper AwakesB
+- Paris in the Twentieth CenturyB
+- The Shape of Things to ComeB F
+- MessiahVG
+- [Face The StormB](https://www.alternatehistory.com/forum/threads/face-the-storm-qanon-and-the-presidential-election-of-2024.472124/ "A timeline on Alternatehistory.com. Set in an alternate 2020s, a radicalized fascist QAnon movement begins its takeover of the United States.")
+- Day of the OprichnikB
+- FractureVG
+- Avalon (2001)F
+- QuasimorphVG
+- Happy's Humble Burger FarmVG !!!

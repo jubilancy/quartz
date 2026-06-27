@@ -1,0 +1,134 @@
+- "girlboss"	
+- "other"	
+- "the Man" or the boys' club	
+- adaptive preference theory	
+- affirmative action (positive discrimination)	
+- agency	
+- ala kachuu	
+- amatonormativity	
+- american psycho	
+- androcentrism	
+- androgynous mind	
+- autonomy	
+- believe women	
+- binary thinking	
+- blackpill feminism	
+- bluestocking	
+- bropropiating	
+- canon/canonization	
+- chanty binx	
+- chhaupadi	
+- Chicana feminism	
+- choice feminism	
+- circular & linear thinking	
+- commodity feminism	
+- consciousness raising	
+- cultural feminism	
+- difference feminism	
+- double deviance	
+- eco-feminism	
+- emma watson	
+- emosogynist	
+- empowering feminism	
+- equity feminism	
+- Essentialism	
+- every desire has a relation to madness	
+- FEBFems	
+- Feminazi	
+- feminine ecriture	
+- fifth wave feminism	
+- first wave Feminism	
+- fourth wave feminism	
+- gamergate	
+- gendertrolling	
+- giggle	
+- glass ceiling	
+- gynocriticism	
+- he for she	
+- HerStory	
+- heterofatalism	
+- human self-fertilization	
+- hysteria	
+- ifeminists	
+- internalised misogyny	
+- intersectional feminist	
+- japanese draconian rules	
+- jk rowling	
+- lesbian seperatism	
+- liberal feminism	
+- male gaze	
+- man is defined as a human being and woman as a female	
+- mansplaining	
+- manterrupting	
+- marxist feminism	
+- matrilocal	
+- men are going extinct	
+- metanarrative	
+- MeToo	
+- michfest cancellation	
+- mind has no gender	
+- misandry	
+- misogyny	
+- missing white woman syndrome	
+- MRAs	
+- naturalisation	
+- nature/culture	
+- neo-feminism	
+- no means no	
+- not all men	
+- patriarchy	
+- penis envy	
+- performative	
+- phallocentricism	
+- phallogocentrism	
+- pop feminism	
+- post-modern feminism	
+- post-structural feminism	
+- psychoanalysis	
+- purity culture	
+- pussy hats	
+- r/gendercritical	
+- radblr	
+- radical feminism	
+- rape culture	
+- raunch feminism	
+- riot grrrl	
+- rosie the rivester	
+- SCUM manifesto	
+- SCUM manifesto author shooting andy warhol	
+- second wave feminism	
+- sex role stereotype	
+- sex strike	
+- sex typing	
+- sex vs gender	
+- shakespeare's sister	
+- slutwalks	
+- social construction	
+- south korean antifeminism and pinch emoji	
+- spinster/ovarit	
+- standpoint theory	
+- strawfeminism	
+- suffrage	
+- suffragette arson	
+- suffragette torture	
+- super woman syndrome	
+- SWERFism	
+- TERFism	
+- the personal is the political	
+- the term "wombyn"	
+- The term "womxn"	
+- third wave feminism	
+- thought has always worked by oppression	
+- TIME'S UP	
+- top freedom	
+- toxic masculinity	
+- trans-exclusionary radical feminists (TERFS)	
+- transfeminism	
+- unabomber was almost trans	
+- WAP	
+- white feminism	
+- who plays god in present-day feminism	
+- womanism	
+- women of colour feminism	
+- womyn's lands	
+- yes means yes	

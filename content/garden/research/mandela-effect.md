@@ -1,0 +1,38 @@
+- The Berenstein Bears	
+- Pan Monopoly	
+- Pikachu	
+- 'No! I am your father!'	
+- Nelson Mandela	
+- 'A teraz drogie dzieci, pocałujcie misia w dupę!'	
+- 'Sierściuch jebany'	
+- C3-PO	
+- 'Do Choroszczy? Do Choroszczy! Na badania? Na badania!	
+- Ciekawski George	
+- Oscary Leonardo DiCaprio	
+- '....of the world!' - Queen	
+- Fruit of the Loom	
+- 'Jiffy'	
+- 'Sindbad' (90's)	
+- M.A.S.H.	
+- Cheez-It(z)	
+- 'Run, you fools!'	
+- Froot Loops	
+- Ford	
+- Coca-Cola i Kit-Kat	
+- Dragon Ball Z przerwane przez 9/11	
+- Noga Henryka VIII	
+- Mr. Roger's Neighborhood	
+- Liczba Stanów Zjednoczonych Ameryki	
+- Flinstonowie	
+- Forrest Gump	
+- Abe Vigoda	
+- 'Lustereczko, powiedz przecie....' (ENG)	
+- 'Co ty wiesz o zabijaniu?'	
+- 'Nie ze mną te numery Brunner'	
+- Driver 2 - PC	
+- The Black Volga	
+- Tiananmen Square	
+- Liczba Odcinków Kapitana Bomby	
+- 'Sketchers'	
+- Weird Al Yankovich - 'All Star'	
+- I Was a Teenage Gary - 'Dodatkowa Scena'	

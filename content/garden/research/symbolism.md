@@ -1,0 +1,356 @@
+---
+title: "symbolism"
+---
+
+This iceberg will be covering symbols and symbolism from around the world and throughout human history. Some entries will be more abstract or general, potentially relating to a whole complex of symbols themselves, while others are more specific, referring to particular symbols from particular places and times. The entry on the world tree is great example of some of some of the decision-making that will have to be done: Do i include a separate entry for trees in general when the tree in general is captured by the essence of the world tree? Or do I just include particular examples from individual species of tree? On top of that, there si some difficulty ordering by obscurity. Many of these in their deeper, more esoteric meaning can be classified as less known, but at the same time are nonetheless so ubiquitous as to be quite well known generally or in general if not in specifics. Iceberg order of entries will be subject to massive revision.
+- Cosmic Ocean
+- World Tree (Jianmu,Yggdrasil, Kabbalistic Tree of Life)
+- The Book of Nature
+- The Heart
+- Ancient of Days
+- Memento Mori
+- Danse Macabre
+- Western European Heraldry
+- The Keys of Heaven
+- Eye of Providence
+- Cornucopia
+- Solar Symbolism, Symbolism of the Sun
+- Lamb of God, Sacrificial Lamb
+- Yin and Yang
+- Fountain of Youth
+- The Desert
+- The Mountain
+- The Forest
+- The Ankh
+- The Four Horsemen
+- Lunar Symbolism, Symbols of the Moon
+- Rites and Rituals
+- Ceremonies and Celebrations
+- Solemnities and Observances
+- Amulets
+- Allegory
+- The Island (Isle of Paradise, etc.)
+- The Garden and Gardens (Garden of Eden, Zen Gardens, Persian Poetry of Gardens)
+- The Christian Cross
+- Star and Crescent
+- Cemeteries and Tombs
+- Ichthys
+- Om or Aum (Hinduism)
+- Star of David
+- Menorah
+- Scales of Justice
+- Religious Icons
+- Secular Icons
+- Apple Pie
+- Folklore
+- The Library
+- Madonna
+- Christogram
+- Crucifix
+- Analogy
+- Metaphor
+- Archetype
+- Theme
+- The Gate (in general)
+- The Bridge (in general)
+- The Tunnel
+- The Hunt
+- Language
+- Pattern
+- Design
+- Names and Naming
+- The Virgin, Virginity, and Virgins
+- Number and Numbers
+- Color and Colors
+- Metal and the Metals
+- Night and Day
+- Light and Darkness
+- Four Cardinal Directions
+- The Seasons
+- Air
+- Earth
+- Fire
+- Water
+- Skull and Crossbones
+- Jolly Roger
+- Stars
+- Constellations
+- The Journey
+- Voyages
+- Butterflies, Cocoons, and Metamorphosis
+- Chinese Ideograms
+- Angels
+- Demons
+- Mount Olympus
+- The Burning Bush
+- Axis Mundi
+- Pimordial Chaos
+- Cosmic Man
+- Myth and Ritual
+- Carl Jung
+- Lore
+- Legend
+- Fairy Tale
+- Theft of Fire
+- Harmony of the Spheres
+- Animals
+- Plants
+- Mon (Japanese Heraldry)
+- Globus Cruciger
+- The Love Lock
+- The Labyrinth vs. Mazes
+- Iconography
+- Sacred Ashes
+- Motif
+- Liberty (Personification of)
+- Personification
+- Stained Glass Iconography
+- Illuminated Manuscripts
+- Horned Deity
+- The Philosopher's Stone
+- Sacrifice (Both Redemptive and Creative)
+- Wishing Wells, Fonts, Fountains, Springs
+- Seals
+- Bestiaries
+- Typology (Biblical, Theological, etc.)
+- Typology (In general)
+- Eternal Flame
+- Wheel of Dharma
+- Mjölnir
+- Torii
+- Khanda
+- Matryoshka Dolls
+- Caduceus (Symbol of Commerce, not Medicine originally)
+- Crux Gemmata
+- Anthropology
+- Mythology
+- Psychology
+- The King, Kingship
+- Kingdom
+- The House
+- The City
+- The Lion
+- The Classical Planets
+- Alchemical Elements
+- The Monster, Monsters, Monstrosity
+- Flowers
+- Fruit
+- Seed
+- The Egg
+- Knighthood and Chivalry
+- The Quest and the Grail
+- The Divine Names
+- Enneagram
+- Infinity
+- Ganges River
+- Pilgrimage
+- Pilgrim's Staff
+- The Ship and Ships
+- The Chariot and Chariots
+- Sacred Geometry
+- The Bell and Bells
+- Caves as Both Womb and Tomb
+- Dying God
+- Flood Myth
+- Founding and National Myths
+- Joseph Campbell
+- Tradition
+- Claude Lévi-Strauss
+- Comparative Religion
+- Hans-George Gadamer
+- Roland Barthes
+- Julia Kristeva
+- Letter Symbolism
+- The Dove and Doves
+- The Dome and Domes
+- Symbolist Painting
+- The Empty Throne (Hetoimasia, etc.)
+- Mircea Eliade
+- Ernst Cassirer
+- Taoist Bagua
+- Three Figure Trigram (Taoist)
+- the Mandala
+- Labours of the Months
+- Crown of Immortality
+- Circle of Stars
+- The Wild Man
+- Emblem Book
+- Trophy of Arms
+- The Crossroads
+- Tarot Card Symbolism
+- Alchemy Symbolism
+- Astrology Symbolism
+- Alchemical Sulphur, Mercury and Salt or Tria Prima
+- The Great Work or Magnum Opus
+- Sigil
+- Vexillology
+- Nine Worthies
+- Islamic Calligraphy
+- Geomancy
+- Numerology
+- Nine-Pointed Star
+- Angel Moroni
+- Paul Ricouer
+- The Bhavachakra or Wheel of Life
+- Semiotics
+- Hermeneutics
+- Jerusalem
+- Spider and Web
+- The Zodiac
+- Floriography (Bouquet-Codes)
+- Ouroboros
+- Shield of the Trinity
+- The Winged Sun
+- Swastika
+- Square and Compasses
+- Monas Hieroglyphica
+- The Mirror and Mirrors
+- Storytelling
+- Cycles and Cyclicality
+- Cephalophore
+- Puer Mingens
+- Luoshu
+- Hetu
+- Sigillium Dei
+- The Veil of Isis
+- Hierotopy and Spatial Icons
+- Immurement
+- Sacramentality/Sacramental Worldview/Catholic Imagination
+- Foundation Sacrifice
+- Apotropaic Magic
+- Tauroctony
+- Tetractys
+- Faravahar
+- The Divided Line of Plato
+- Eight Auspicious Symbols of Tibetan Buddhism
+- Merkhaba
+- Ner Tamid
+- Nataraja
+- Lingam
+- Unity of Opposites
+- The Shadow
+- Microcosm/Macrocosm
+- Argo Navis
+- Catholic Episcopal Mottoes
+- Vesica Piscis
+- The Seed of Life
+- The Flower of Life
+- The Carnivalesque
+- Grotesquery
+- Deus Otiosus
+- Titanomachy
+- Anti-gods and Gigantomachy
+- Dragons
+- The Serpent
+- Heroism, Heroics and Heroes
+- Orbis Alius
+- Marcel Griaule
+- Jean Rouch
+- Germaine Dieterlen
+- Georges Dumezil
+- Rene Guenon
+- Clifford Geertz
+- Victor Turner
+- Mary Douglas
+- Northrop Frye
+- Ananda Coomaraswamy
+- Algirdas Julien Greimas
+- Jean Chavalier
+- Gilbert Durand
+- Alain Gheerbrant
+- Nasr Abu Zayd
+- Ethel M. Albert
+- Fernando Andacht
+- Charles K. Bliss
+- Andrzej Bogusławski
+- Geoffrey Broadbent
+- Manuel Carvalheiro
+- Walter De Brouwer
+- Eric de Kuyper
+- Umberto Eco
+- Mikhail Epstein
+- Miguel Ángel Garrido Gallardo
+- Sofija Grandakovska
+- John Hartley
+- Bob Hodge
+- Jean-Marie Klinkenberg
+- Klaus Krippendorff
+- Tomás Llorens
+- Eternal Homecoming
+- Jean Dalby Clift
+- Keith Critchlow
+- Adolf Guggenbühl-Craig
+- Jean Hani
+- Robert Lawlor
+- Jonathan Pageau
+- Marion Woodman
+- Erich Neumann (psychologist)
+- Jonathan Young (psychologist)
+- Symbolic Religiosity
+- Paradigmatic Analysis
+- John Deely
+- The Book of Numbers in the Holy Scriptures (Liber numerorum qui in sanctis Scripturis occurrunt)
+- Hittite Sun Disk
+- Symbolic Culture
+- Insects in Religion
+- Badge of Shame/Stigma
+- Buddhist Symbols
+- Black Rose Symbolism
+- Adinkra Symbols
+- Taiji
+- Taijitu
+- Taegeuk
+- Cthonian vs Celestial Light
+- The Penguin Dictionary of Symbolism
+- The Layer Quaternity
+- The Church Grim
+- Year Walking
+- Druze Star
+- Central African Cosmograms
+- Nsibidi Ideograms
+- The Soyombo Symbol
+- Urmonotheismus
+- Sky Father
+- Motif-Index of Folk Literature
+- Chaoskampf
+- Nariphon
+- The Pictish Beast
+- The Helm Of Awe
+- Kosmos
+- Mount Denali
+- Mount Kunlun
+- Pharmakon
+- The Incarnation as Ultimate Symbol
+- Aarne–Thompson–Uther Index
+- Folkloristics
+- Folklore Studies
+- Symbol Grounding Problem
+- Vodun Veve
+- Litema
+- Schluckbildchen
+- Pittura infamante
+- Krustu Krusts
+- Chakra Bhuwana
+- Hyang
+- Sign of Tannit
+- Tattva Symbols
+- Urantia Symbols
+- Yoni
+- The Vajra
+- The Omphalos
+- Tintinnabulum
+- Vinca Symbols
+- Rohonc Codex
+- Safaitic Inscriptions
+- Charakteres
+- Oculist Cipher
+- Boschius, Jacobus (?-?): Symbolographia Sive De Arte Symbolica Sermones Septem. Quibus accessit Studio & Operâ Ejusdem Sylloge Celebriorum Symbolorum In Qvatvor Divisa Classes Sacrorum, Heroicorum, Ethicorum, Et Satyricorum Bis Mille Iconismis Expressa ... - Augsburg u. Dillingen: Bencard, 1702.
+- Scarlattini, Ottavio (1623-1699): Homo Et Eius Partes Figuratus & Symbolicus, Anatomicus, Rationalis, Moralis, Mysticus, Politicus, & Legalis: Opus Utile Praedicatoribus...; Cum Additionibus & Indicibus... / Collectus Et Explicatus Cum Figuris, Symbolis, Anatomiis.... Nunc primum ex Italico Idiomate Latinitati datum a Matthia Honcamp (1650-?, Theologe). - Augustae Vindelicorum, & Dilingae: Sumptibus Joannis Caspari Bencard, Bibliopolae; 1695. Original: L' huomo e sue parti, figurato e simbolico, anatomico, rationale, morale, mistico, politico e legale. Band 1: (1695).
+- Masen, Jacob SJ (1606-1681): Familiarium Argutiarum Fontes. - Köln: Rommerskirchen, 1711.
+- Masen, Jacob S.J. (1606-1681): Speculum imaginum veritatis occultae. - Köln: J. A. Kinckius <Witwe>, 1681.
+- Exner, Balthasar (1576-1624): Valerius Maximus Christianus: hoc est, Dictorum et Factorum Memorabilium, unius atque alterius Seculi, Imp\[eratorum\], Regum, Principum, inprimis Christianorum, Libri Novem. - Hanau: Aubry & Schleich, 1620.
+- Hondorff, Andreas (auch: Hondorf; ?-1572): Theatrum Historicum : Sive Promtuarium Illustrium Exemplorum Ad Honeste, Pie, Beateque Vivendum / ... Initio Quidem A ... Andrea Hondorffio, Theologo idiomate Germanico conscriptum. Iam Vero Labore Et Industria Philippi Loniceri \[1532-1599\] ... latinitate donatum .... - Editio Tertia Prioribus Emendatior. - Francofvrti : Per Ioannem Feyrabendium, 1598.
+- Cartari, Vincenzo (1531 - nach 1571): Imagines Deorum, Qui Ab Antiquis Colebantur: In quibus simulacra, ritus, caerimoniae, magnaq\[ue\] ex parte veterum religio explicatur; Quibus accesserunt duo Indices ... / Olim a Vincentio Chartario Rhegiensi ex variis auctoribus in unum collectae, atque Italica lingua expositae: nunc vero ... Latino sermone ab Antonio Verderio (DuVerdier, Antoine; 1544-1600) ... expressae, atque in meliorem ordinem digestae. - Lugduni: Apud Barptolemaeum Honoratum, 1581.
+- Manuzio, Paolo (1512-1574): Adagia Optimorum Utriusque Linguae Scriptorum Omnia, Quaecunque Ad Hanc Usque diem exierunt: cum plurimis ac locupletissimis indicibus. - Ursellis: Ex Officina Cornelii Sutorii, impensis Lazari Zetzneri, 1603.
+- Ravisius, Johannes (1480-1524): Officinae epitome.
+- Valeriano, Pierio (1477-1558): Hieroglyphica, Sive De Sacris Aegyptiorum Aliarumque Gentium Literis Commentarii : libri LVIII duobus aliis ab eruditissimo viro annexis. Accesserunt loco auctarii Hieroglyphicorum Collectanea : ex veteribus & recentioribus auctoribus descripta & in sex libros ordine alphabetico digesta \[u.a.\]. - Ed. ad novissimas Germaniae composita .... - Francofurti ad Moenum : Sumptibus Christiani Kirchneri, Typis Wendelini Moewaldi, 1678.
