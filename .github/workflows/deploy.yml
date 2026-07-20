@@ -1,15 +1,22 @@
 name: Deploy Quartz to GitHub Pages
+
 on:
   push:
     branches:
       - v5
+
+env:
+  THEME_NAME: amethyst
+
 permissions:
   contents: read
   pages: write
   id-token: write
+
 concurrency:
   group: "pages"
   cancel-in-progress: false
+
 jobs:
   build:
     runs-on: ubuntu-latest
@@ -33,6 +40,8 @@ jobs:
             ${{ runner.os }}-plugins-
       - name: Install Quartz plugins
         run: npx quartz plugin install
+      - name: Fetch Quartz Theme
+        run: curl -s -S https://raw.githubusercontent.com/saberzero1/quartz-themes/master/action.sh | bash -s -- $THEME_NAME
       - name: Build Quartz
         run: npx quartz build
       - name: Setup Python
@@ -45,6 +54,7 @@ jobs:
         uses: actions/upload-pages-artifact@v3
         with:
           path: public
+
   deploy:
     needs: build
     environment:
