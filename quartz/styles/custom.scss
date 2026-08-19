@@ -1,3 +1,9 @@
 @use "./variables.scss" as *;
 
 // put your custom CSS here!
+
+.page[data-frame="full-width"] > #quartz-body {
+  max-width: 750px;
+  margin: 0 auto;
+  padding: 0 1rem;
+}
