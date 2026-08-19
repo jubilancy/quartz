@@ -2,8 +2,9 @@
 
 // put your custom CSS here!
 
-.page[data-frame="full-width"] > #quartz-body {
+.page[data-frame="full-width"] > #quartz-body > .center {
   max-width: 750px;
+  width: 100%;
   margin: 0 auto;
   padding: 0 1rem;
 }
