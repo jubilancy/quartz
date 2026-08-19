@@ -1,4 +1,4 @@
-import { FullSlug, isFolderPath, resolveRelative } from "../util/path"
+import { isFolderPath, resolveRelative } from "../util/path"
 import { QuartzPluginData } from "../plugins/vfile"
 import { Date, getDate } from "./Date"
 import { QuartzComponent, QuartzComponentProps } from "./types"
@@ -17,7 +17,6 @@ export function byDateAndAlphabetical(): SortFn {
     } else if (!f1.dates && f2.dates) {
       return 1
     }
-
     // otherwise, sort lexographically by title
     const f1Title = f1.frontmatter?.title.toLowerCase() ?? ""
     const f2Title = f2.frontmatter?.title.toLowerCase() ?? ""
@@ -32,7 +31,6 @@ export function byDateAndAlphabeticalFolderFirst(): SortFn {
     const f2IsFolder = isFolderPath(f2.slug ?? "")
     if (f1IsFolder && !f2IsFolder) return -1
     if (!f1IsFolder && f2IsFolder) return 1
-
     // If both are folders or both are files, sort by date/alphabetical
     if (f1.dates && f2.dates) {
       // sort descending
@@ -43,7 +41,6 @@ export function byDateAndAlphabeticalFolderFirst(): SortFn {
     } else if (!f1.dates && f2.dates) {
       return 1
     }
-
     // otherwise, sort lexographically by title
     const f1Title = f1.frontmatter?.title.toLowerCase() ?? ""
     const f2Title = f2.frontmatter?.title.toLowerCase() ?? ""
@@ -62,13 +59,10 @@ export const PageList: QuartzComponent = ({ cfg, fileData, allFiles, limit, sort
   if (limit) {
     list = list.slice(0, limit)
   }
-
   return (
     <ul class="section-ul">
       {list.map((page) => {
         const title = page.frontmatter?.title
-        const tags = page.frontmatter?.tags ?? []
-
         return (
           <li class="section-li">
             <div class="section">
@@ -83,18 +77,6 @@ export const PageList: QuartzComponent = ({ cfg, fileData, allFiles, limit, sort
                   </a>
                 </h3>
               </div>
-              <ul class="tags">
-                {tags.map((tag) => (
-                  <li>
-                    <a
-                      class="internal tag-link"
-                      href={resolveRelative(fileData.slug!, `tags/${tag}` as FullSlug)}
-                    >
-                      {tag}
-                    </a>
-                  </li>
-                ))}
-              </ul>
             </div>
           </li>
         )
@@ -107,7 +89,6 @@ PageList.css = `
 .section h3 {
   margin: 0;
 }
-
 .section > .tags {
   margin: 0;
 }
