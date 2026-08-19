@@ -40,6 +40,7 @@ configuration:
         tertiary: "#84a59d"
         highlight: rgba(143, 159, 169, 0.15)
         textHighlight: "#b3aa0288"
+
 plugins:
   - source: github:quartz-community/created-modified-date
     enabled: true
@@ -81,7 +82,7 @@ plugins:
     enabled: true
     order: 50
     layout:
-      position: right
+      position: afterBody
       priority: 30
   - source: github:quartz-community/crawl-links
     enabled: true
@@ -155,17 +156,17 @@ plugins:
   - source: github:quartz-community/explorer
     enabled: true
     layout:
-      position: left
-      priority: 50
+      position: beforeBody
+      priority: 60
   - source: github:quartz-community/graph
     enabled: true
     layout:
-      position: right
+      position: afterBody
       priority: 10
   - source: github:quartz-community/search
     enabled: true
     layout:
-      position: left
+      position: header
       priority: 20
       group: toolbar
       groupOptions:
@@ -173,7 +174,7 @@ plugins:
   - source: github:quartz-community/backlinks
     enabled: true
     layout:
-      position: right
+      position: afterBody
       priority: 50
   - source: github:quartz-community/article-title
     enabled: true
@@ -193,18 +194,18 @@ plugins:
   - source: github:quartz-community/page-title
     enabled: true
     layout:
-      position: left
+      position: header
       priority: 10
   - source: github:quartz-community/darkmode
     enabled: true
     layout:
-      position: left
+      position: header
       priority: 30
       group: toolbar
   - source: github:quartz-community/reader-mode
     enabled: true
     layout:
-      position: left
+      position: header
       priority: 35
       group: toolbar
   - source: github:quartz-community/breadcrumbs
@@ -234,7 +235,7 @@ plugins:
     options: {}
     order: 25
     layout:
-      position: left
+      position: header
       priority: 25
       display: mobile-only
   - source: github:quartz-community/bases-page
@@ -272,6 +273,7 @@ plugins:
       darkMode: auto
       exportPadding: 20
     order: 50
+
 layout:
   groups:
     toolbar:
@@ -284,16 +286,24 @@ layout:
         beforeBody: []
         left: []
         right: []
-    content: {}
+    content:
+      template: full-width
+      positions:
+        left: []
+        right: []
     folder:
+      template: full-width
       exclude:
         - reader-mode
       positions:
+        left: []
         right: []
     tag:
+      template: full-width
       exclude:
         - reader-mode
       positions:
+        left: []
         right: []
     canvas: {}
     bases: {}
